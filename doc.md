@@ -1,0 +1,2230 @@
+---
+title: Hạnh
+author: Khái Hưng
+language: vi
+---
+
+Chuyển text, soát lỗi: **cailubietdi**
+
+Ebook: **Cuibap**
+
+# Hạnh
+
+Hạnh cho tên mình là một sự mỉa mai. Trong hơn hai mươi năm mang cái tên ấy, chàng không một lần nào gọi là gặp may, mà cũng chẳng bao giờ thực là sung sướng.
+
+Ngay lúc ra đời Hạnh đã suýt bỏ mạng và suýt làm mẹ chết lây. Cha Hạnh mếu máo bảo thầy thuốc:
+
+-- Xin ông cố cứu lấy nhà tôi, không cần nghĩ đến cái thai.
+
+Nhưng thầy thuốc cứu được cả hai mẹ con. Thế là Hạnh cất tiếng khóc, ra chào đời, để làm em ba anh và hai chị. Ông phán Hà bảo bà phán:
+
+-- Nó sống thực là một sự may, vậy đặt tên nó là Hạnh.
+
+Vì thế mà tên chàng là Hạnh. Và có lẽ vì thế mà Hạnh bị ghét, bị ruồng rẫy, bị hành hạ. Bà phán như lúc nào cũng nhìn thấy phản chiếu trong gương mắt đứa con khốn nạn hình ảnh cái chết hụt của bà. Nhiều khi nghe Hạnh khóc lâu quá, bà sang buồng bèn mắng vú em:
+
+-- Mày không dỗ cho thằng ôn con nó nín được à?
+
+Rồi cáu tiết bà giơ tay phát mạnh vào mông đứa bé và thét:
+
+-- Quý báu lắm đấy! Có câm mồm ngay không?
+
+Sau khi bà phán hằn học quay đi, Hạnh lại nhận tiếp luôn cái phát thứ hai của vú em.
+
+---
+
+Thòi thơ ấu, Hạnh sống trong kinh khủng và lãnh đạm. Từ ông phán, bà phán cho chí năm anh chị, hai em bé và cả bọn người nhà, không ai ưa Hạnh hết. Người ta không hành hạ, đánh đập, trêu ghẹo Hạnh thì cũng để mặc Hạnh lủi thủi chơi ở xó vườn, hay ở một góc nhà. Hạnh chạy nhảy một mình, bày đình bày chùa một mình. Bọn anh em có đến gần thì cũng chỉ đấm đá Hạnh hay phá đình chùa của Hạnh.
+
+Bản tính nhút nhát, nhút nhát vì sợ hãi. Hạnh lại ốm yếu, nên thường hay khóc, hay quấy. Vì thế người ta đặt cho Hạnh cái biệt hiệu "Thằng cu Nhè". Rồi người ta chỉ gọi Hạnh bằng cái biệt hiệu ấy hầu như quên hẳn tên Hạnh.
+
+Hạnh cho những bữa ăn là thứ hình phạt nặng nề. Ngồi vào mâm trước cha mẹ, anh em, Hạnh bị mẹ mắng: "Cái thằng cu Nhè chỉ háu ăn chẳng chờ đợi ai cả!" Câu nói ít khi không điểm một cái tát hay một cái cốc nên thân. Chậm chạp đến sau hết mọi người, Hạnh cũng chẳng tránh thoát câu mỉa mai: "Gớm thằng cu Nhè dềnh dàng mãi, còn định để người ta mời nữa hay sao?" Lúc ăn hình như ông Phán chỉ để ý đến Hạnh, bắt bẻ cách cầm đũa, bát cách gắp: "Ăn gì mà ăn ngốn ngấu thế?" Hay: "Thằng Hạnh gắp mãi một dĩa giò; thôi để nhường cho em". Sự thực, những món ngon ít khi Hạnh được ăn đến hai miếng.
+
+Rồi Hạnh đi học. Buổi đầu Hạnh học ở nhà. Ông Phán mượn một người đỗ bằng tiểu học dạy các con. Hạnh chăm chỉ chẳng kém anh em mà lại còn phần thông minh hơn ai hết. Nhưng thầy giáo chẳng bao giờ để ý đến Hạnh.
+
+Các anh em Hạnh được một điểm tốt thì thầy giáo trầm trồ khen ngợi. Ở bài của Hạnh, cái điểm tốt ấy sẽ rất thường, không đáng kể. Nhưng trái lại, nếu Hạnh vì hôm trước mệt nên không thuộc bài, thì thế nào cái thước kẻ cũng gõ lên đầu hay dằn lên tay Hạnh. Những trò khác gặp trường hợp ấy chỉ bị mắng mấy câu qua loa, hay bị phạt chép lại hai, ba lần bài học là cùng.
+
+Ra trường Hạnh cũng chẳng sung sướng hơn. Vì bẽn lẽn, nhút nhát, Hạnh không tỏ ra được với ông giáo cái sức học khá và cái thông minh vững chãi của mình. Thành thử Hạnh bị lẫn trong đám học trò xoàng. Kỳ thi hàng tháng Hạnh có nhất được vài bài, người ta cho ngay là một sự may. Còn khi Hạnh để cho người láng giềng chép bài thi của mình thì lúc chấm thầy giáo không phải ngờ vực gì nữa: kẻ chép bài là Hạnh. Nếu Hạnh cho không cho hắn dòm bài làm thì sẽ bị hắn hành hạ khổ sở ngay vì ở lớp và ở trường Hạnh không vây cánh, không bạn thân. Hạnh là một trò ít lời, ít vui cười đùa bỡn, ít có ác cảm nhưng cũng ít có thiện cảm với hết thẩy mọi người.
+
+Năm mười ba, Hạnh đậu bằng cơ thủy cùng với hai anh, hơn Hạnh hai và một tuổi. Lúc về nhà, ông phán bà phán soắn suýt hỏi thăm và khen ngợi hai con lớn. Mãi về sau ông phán mới biết tin Hạnh trúng truyển. Ông kinh ngạc kêu:
+
+-- Thằng Hạnh cũng đi thi cơ đấy à?
+
+Sau bốn năm cần cù, học tập - bốn năm lạnh lùng, tẻ ngắt, không được tình bè ban hay tình anh em an ủi, vỗ về - Hạnh thi đậu luôn hai bằng thành chung và trung đẳng tiểu học.
+
+Được bổ giáo học, Hạnh dạy ở một trường huyện, về miền trung du. Trong ba bốn năm, đời chàng lạnh lùng, tẻ ngắt như xưa, không bè bạn, không tình ái, không cả yêu mến của bọn học trò nhà quê.
+
+---
+
+Nhưng một hôm, Hạnh gặp nạn. Xuống một cái dốc dài, và trơn vì trời mưa, xe đạp của chàng trượt bánh văng chàng vào sườn đồi. Và chàng ngất đi...
+
+Tỉnh dậy, trong làn không khí sặc mùi éther, Hạnh thấy mình nằm trên chiếc giường nệm, trong một gian phòng ấm áp, có lửa cháy trong lò sưởi. Sờ tay lên đầu, vì đầu chàng vừa đau, vừa nhức, chàng thấy có vải quấn chằng chịt. Bấy giờ chàng mới nhớ ra rằng mình ngã xe đạp, và đoán chừng người ta khiêng mình đến đây, một bệnh viện, hay một nơi cấp cứu bên dường.
+
+Gần giường, một cái giá gỗ với chậu nước đầy, chiếc khăn bông trắng và bánh xà phòng đựng trong hộp sắt nhẹ. Trên mặt bàn ngủ, ba bốn lọ thuốc có dán nhãn đỏ. Hạnh hiểu ngay rằng người ta vừa băng bó cho mình xong. Chàng toan gọi người vào để hỏi xem mình ở đâu. Nhưng bản tính nhút nhát và do dự, chàng lại thôi, nằm im lặng nhìn hết vật nọ đến vật kia.
+
+Qua cánh cửa sổ mở bụi mưa phùn, cảnh bên ngoài mịt mùng u ám. Hình như đó là một cái vườn cây cối um tùm. Bỗng hai cánh cửa sổ đóng hờ mở tung ra. Một luồng gió lạnh tạt mưa vào phòng, và thổi rạt chiếc màn ren treo ở cửa phòng. Hạnh định ngồi dậy nhưng mình mẩy đau ran, không sao nhúc nhích được. Chàng gọi:
+
+-- Có ai đấy không?
+
+Không có tiếng đáp lại. Cái nhà như không người ở. Hạnh ngờ rằng tiếng mình nhỏ quá, liền cao giọng gọi một lần nữa. Vẫn im bặt. Luồng gió lạnh vẫn từng cơn thổi thốc vào phòng. Một cành cam với những quả rám đỏ lọt qua khung cửa rủ vào phía trong. Hạnh quên cả gió mưa, mắt đăm đăm nhìn. Chàng nghĩ thầm: "Giá được ăn một quả!" Và đã khát sẵn chàng lại càng thấy khát.
+
+-- Cô lên xem ông ấy đã tỉnh chưa?
+
+Bất giác Hạnh mỉm cười. Chàng vừa nhận thấy tiếng một thiếu phụ mà chàng đoán chắc rằng xinh lắm. Tiếng trong trẻo của một thiếu nữ trẻ hơn đáp lại:
+
+-- Chị lên, em sợ lắm.
+
+Người chị gắt:
+
+-- Sao mà nhát thế? Sợ cái gì kia chứ?
+
+-- Em sợ ông ấy chết rồi.
+
+Hạnh không nhịn được bật cười. Chàng nói một mình: "Chết cái quái thế nào được!" Và nhìn cửa phòng, chờ đợi...
+
+Lát sau, một người vén rèm bước vào kêu:
+
+-- Chết chưa?
+
+Rồi vội vàng đóng cửa kính lại. Hạnh yên trí người ấy là một cô khán hộ, tuy cho rằng cô khán hộ trẻ quá, chỉ độ mười sáu, mười bảy tuổi.
+
+-- Thưa cô, cô làm ơn cho tôi xin một chén nước. Tôi khát lắm.
+
+Thiếu nữ quay lại, vui mừng:
+
+-- Ồ! Ông đã tỉnh!
+
+-- Thưa cô, tôi ngất đi?
+
+-- Vâng ông ngất đi, mà tôi tưởng ông...
+
+Thấy thiếu nữ ngập ngừng, Hạnh lo lắng nói tiếp:
+
+-- Cô tưởng tôi chết, phải không? Ông đốc bảo bệnh tôi nguy kịch, phải không?
+
+-- Không, anh tôi đi mời đốc tờ đã về đâu?
+
+Hạnh ngơ ngác hỏi:
+
+-- Vậy đây không phải là nhà thương?
+
+-- Không ạ, đây là đồn điền của anh tôi, ông ngã xe đạp ở gần đây, anh tôi đi thăm ruộng bắt gặp, cho khiêng ông về, rồi ra tỉnh mời đốc tờ. Thưa ông; ông đã dễ chịu chưa?
+
+-- Cám ơn cô. Đầu tôi còn nhức lắm.
+
+-- Vâng, đầu ông vỡ, chảy nhiều máu lắm. Nhưng chân tay không gẫy, anh tôi bảo thế.
+
+Không bao giờ Hạnh lại bạo dạn như thế, dám nói truyện rất lâu với một người con gái lạ. Có lẽ trường hợp đặc biệt này khiến chàng quên được cái tính thẹn thùng cố hữu của chàng. Nhưng một phần cũng nhờ ở cái dung nhan trung bình và hiền lành của thiếu nữ.
+
+Sau mấy giây yên lặng khó chịu Hạnh ngập ngừng hỏi cho có truyện:
+
+-- Thưa cô, vậy cái băng ở đầu tôi không phải ông đốc tờ quấn?
+
+-- Thưa ông, chị tôi quấn đấy ạ. Chị tôi trước làm bà đỡ.
+
+Rồi chừng cho đứng một mình nói truyện với khách lạ là một điều bất tiện, thiếu nữ cúi đầu chào, đi ra khỏi phòng. Hạnh nghe thấy tiếng guốc ở nhà dưới đi lên rồi tiếng thiếu nữ bảo chị ở phòng bên:
+
+-- Ông ta đã tỉnh đấy chị ạ.
+
+Người chị vui mừng đáp lại:
+
+-- Thế à? Lan có nhớ dặn ông ấy nằm im đừng động đậy để chờ ông đốc đến tiêm không?
+
+-- Em quên... Mà ông ấy kêu khát em cũng quên rót nước cho ông ấy nữa.
+
+Cả hai cùng vào phòng. Người đàn bà nhỏ nhắn, vào trạc ba mươi tuổi. Da trắng hồng. Dưới đôi mi bán nguyệt hai con mắt sáng ngời cười nhìn thẳng vào mặt Hạnh, khiến mắt chàng lim dim nhắm lại.
+
+-- Thưa ông, ông không hề gì hết, lát nữa ông đốc đến tiêm cho ông một phát antitétanique là không lo gì hết. Ông ngất đi chỉ vì mất nhiều máu... Nhưng không sao.
+
+Thiếu phụ đặt ghế ngồi liền bên giường trong khi Lan rót một cốc nước chè nụ nóng đem lại. Hạnh toan ngồi dậy đỡ lấy. Nhưng thiếu phụ vội kêu:
+
+-- Ấy, không ngồi được dâu.
+
+Rồi tay phải nàng từ từ nâng đầu Hạnh lên, tay trái cầm cốc nước ghé vào môi chàng.
+
+-- Ông nên uống thong thả.
+
+Lần đầu trong đời, Hạnh được chăm nom dịu dàng, hơn thế, được tay một người đàn bà mơn trớn. Chàng sung sướng chảy nước mắt.
+
+Thiếu phụ khẽ hỏi:
+
+-- Ông còn đau lắm?
+
+Hạnh nghẹn ngào đáp:
+
+-- Không... Cảm ơn... bà.
+
+Nửa giờ sau, chủ đồn điền và thầy thuốc tới nơi. Nghe tiếng còi điện ô-tô người em gái chạy vội ra cổng. Hạnh nghe có tiếng hỏi ngoài đường:
+
+-- Thế nào, em Lan, ông ta đã tỉnh chưa?
+
+Và tiếng Lan vui mừng đáp lại:
+
+-- Thưa anh, đã. Em cứ lo ông ấy chết.
+
+Giọng cười thản nhiên của hai người đàn ông làm Hạnh hơi khó chịu. Chàng chau mày lim dim nhắm mắt. Tiếng cười nói mỗi lúc một gần thêm. Hạnh nghe rõ họ bàn chuyện săn bắn rồi chuyện tổ tôm. Một mẫu thời xưa vụt hiện trong ký ức Hạnh:
+
+Chàng thấy mình ốm li bì, nằm trong một gian buồng tối. Bên ngoài là phòng khách. Ở đó cha mẹ chàng đương đánh tổ tôm với bạn hữu. Ai nấy nói oang oang. Rồi đêm khuya người ta ăn cháo gà nóng. Tiếng thìa, đũa chạm bát lách cách. Người ta kể những chuyện khôi hài. Và người ta thét lên cười vui thú. Hạnh mệt hơn là đau, nhưng cũng rên mấy tiếng để bên ngoài người ta biết rằng mình đang ốm. Song chẳng ai lưu ý tới.
+
+Tiếng giầy vào phòng kéo Hạnh về hiện tại. Hạnh tưởng là ông thầy thuốc, nhưng đó chỉ là bà chủ đồn điền.
+
+-- Ông đốc đã đến. Sắp thăm ông đấy.
+
+Hạnh ấp úng:
+
+-- Cảm ơn bà.
+
+Rồi thấy hai người đàn bà nhìn mình mỉm cười, chàng bẽn lẽn nhắm mắt nằm chờ.
+
+-- Ông vẫn còn mệt và đau lắm phải không?
+
+Hạnh mở mắt ra, nhưng nhìn thẳng xuống chân:
+
+-- Thưa bà, cũng không đau lắm.
+
+Gót giầy cồm cộp nện. Hạnh nghĩ thầm:
+
+-- Chuyến này thì hẳn là ông đốc.
+
+Quả thực đó là ông thầy thuốc, một người to lớn, khỏe mạnh, da ngăm ngăm đen. Hạnh lo lắng nhìn cái rọc thuốc lá bằng ngà rất dài mà ông ta ngậm lệch ở một bên miệng, tưởng chừng lửa ở đầu điếu thuốc sắp dí vào trán ông chủ đồn điền đứng đối diện; vì ông này người thấp bé chỉ cao đến mũi ông thầy thuốc.
+
+-- Ngã xe đạp?
+
+Hạnh không đáp, tưởng ông thầy thuốc không hỏi mình, nhất lại thấy ông ta quay ra phía cửa sổ.
+
+-- Vâng, ông ấy ngã xe đạp.
+
+Hạnh ngước mắt nhìn bà chủ như để cám ơn bà đã trả lời giúp mình.
+
+-- Ông ngồi dậy. 
+
+Thấy Hạnh ngần ngừ, ông thầy thuốc hỏi luôn:
+
+-- Có ngồi được không?
+
+-- Được ạ.
+
+Người thiếu phụ vội nói.
+
+-- Ông ấy đau lắm, vì vết thương khá nặng...
+
+-- Để tôi đỡ ông ấy dậy.
+
+Hạnh kinh hoảng ngồi chồm lên. Ông thầy thuốc yên lặng tháo băng ra xem, lấy tay nắn chỗ đau:
+
+-- Không vỡ sọ... không hề gì... Ông đã rửa ether?
+
+Bà chủ đáp:
+
+-- Vâng.
+
+-- Thế thì tốt lắm rồi. Bây giờ tôi tiêm cho ông một phát huile camphrée và một phát anti-tétanique là không lo ngại gì nữa... Đến mai sẽ lại lên xe đạp phóng nước đại như thường.
+
+Hạnh mỉm cười vơ vẩn.
+
+-- Ông làm gì?
+
+-- Bẩm... tôi làm giáo học ở trường Huyện.
+
+-- Huyện đây?
+
+-- Vâng.
+
+-- Ông đi xe đạp về tỉnh. Được nghỉ lễ Noel?
+
+-- Vâng.
+
+Vừa nói ông thầy thuốc vừa quấn băng lại như cũ. Đoạn mở cái va-li con lấy ra một cái ống tiêm và hai ống thuốc. Tức thì bà chủ nhà đã nhanh nhẹn đặt lên bàn cái bếp rượu mạnh rồi mở cửa sổ nói xuống nhà dưới:
+
+-- Lan ơi, lấy cho chị cái xoong đun sữa nhé.
+
+Tiếng Lan đáp:
+
+-- Có lấy nước không, chị?
+
+-- Có chứ.
+
+Câu hỏi của Lan làm hai người đàn ông bật cười. Hạnh cũng nhách miệng mỉm cười.
+
+---
+
+Trong khi bà chủ ngồi ở một cái ghế đặt bên giường người ốm để đợi xoong nước sôi - xoong nước luộc ống tiêm và kim tiêm - thì ông chủ và ông thầy thuốc uống rượu ở phòng khách liền bên. Hạnh nghe thấy tiếng cốc lách cách đặt lên dĩa. Và chàng đoán họ uống tới vài cốc rồi, vì đã hai lần có tiếng mời: "Một cốc nữa" và sau tiếng rượu rót ra cốc, câu trả lời: "Merci, Monsieur Lâm!" Hạnh nghĩ thầm: "À, ra đây là đồn điền ông Lâm mà mình đi xe đạp qua cổng mỗi khi ra tỉnh chơi!" Chàng nhớ lại cái cổng gạch rộng với hai cánh cửa sắt, xây hơi lùi vào phía trong lũy tre cao, kiên cố. Hạnh không hề nghe thấy người ta bàn tán nói truyện về ông Lâm bao giờ. Chàng biết cái tên Lâm là chỉ vì, cũng như mọi người ở vùng này, chàng thường chia con đường dài ra từng đoạn, và thường dừng xe nghỉ ở cái quán cuối dốc đồn điền ông Lâm: "Thì ra mình ngã xe ở ngay cái dốc ấy, cái dốc mà mình vẫn tưởng tên là 'dốc đồn điền ông Lâm'."
+
+-- Thưa ông, ông làm giáo học đã bao lâu?
+
+-- Thưa bà, đã hơn bốn năm... Năm nay là năm thứ năm.
+
+-- Ở luôn một trường Huyện?
+
+-- Vâng.
+
+-- Lạ nhỉ! Ít khi có ông giáo dạy luôn một trường Huyện trong năm năm như thế.
+
+-- Vâng, kể cũng... Nhưng, thưa bà, không bao giờ tôi nghĩ đến điều đó.
+
+Bà mỉm cười:
+
+-- Dễ thường người ta quên ông đi đấy.
+
+Câu khôi hài của người đàn bà, Hạnh chợt cảm thấy không ngoa ngoắt chút nào. Là vì ý nghĩ ấy có luôn luôn trong óc chàng: "Người ta quên mình".
+
+Mà sự thực, Hạnh quả là một người bị quên. Thời còn nhỏ, cha mẹ Hạnh như quên có Hạnh trong gia đình, các thầy giáo như quên có Hạnh trong lớp học, đến nay sở Học chính lại như quên có thầy giáo Hạnh ở một trường Huyện nhỏ. Và đời cũng như quên rằng có một người tên là Hạnh đương sống, sống trong bóng tối.
+
+-- Vâng, thưa bà, có lẽ người ta quên tôi.
+
+-- Ông làm giáo học thì sai, phải không?
+
+Thản nhiên, Hạnh đáp:
+
+-- Không ạ. Tôi làm giáo học.
+
+Người đàn bà tỏ vẻ kinh ngạc:
+
+-- Thế à? Tôi cứ tưởng ông làm trợ giáo.
+
+Hạnh giọng tự phụ:
+
+-- Thưa bà, tôi đậu Diplôme và Brevet năm 1930.
+
+Nước trong xoong sôi đã lâu, Hạnh vẫn không thấy bà chủ lưu ý tới. Chàng cũng không nhắc, vì muốn lui cái phút tiêm lại. Trong đời chàng, chàng mới trồng đậu hai lần, một lần thời còn nhỏ mà chàng không nhớ vào năm nào, và một lần học năm thứ hai trường Bảo hộ. Còn tiêm thì chàng chưa bao giờ tiêm. Trông thấy cái kim nhọn đâm vào da người khác, chàng đã rùng rợn như chực ngất đi. Vì thế, những năm có dịch tả, thầy thuốc về trường tiêm cho học trò, chàng vẫn tìm cách trốn tránh: đối với chàng, thà mắc bệnh tả chết còn hơn. Thế mà, lần này, ngay một lúc chàng tiêm liền hai phát.
+
+Tim Hạnh đập mạnh như theo nhịp tiếng lách cách của cái ống tiêm trong nước sôi. Mặt Hạnh tái đi khi thấy bà chủ đồn điền thổi tắt lửa, nói:
+
+-- Tiêm thôi.
+
+Bà đứng dậy sang phòng bên, rồi cùng hai người đàn ông đi vào.
+
+-- Thưa quan, tiêm huile camphrée trước?
+
+-- Vâng.
+
+Vừa nói, ông thầy thuốc vừa cầm cái cưa nhỏ xíu cưa một đầu ống thuốc.
+
+---
+
+Công việc làm nhanh chóng và nhẹ nhàng một cách không ngờ. Bây giờ Hạnh chỉ còn nhôn nhốt đau ở hai bên đùi.
+
+Nằm một mình trong gian phòng ấm áp, chàng mỉm cười tự nhủ thầm: "May mà ông đốc tưởng mình sốt rét. Chứ nếu ông ấy biết mình sợ đến lạnh toát người và run bật lên thì ông ấy cười chết!"
+
+Có tiếng giày rón rén, Hạnh biết ngay là bà chủ.
+
+-- Ông ngủ đi một lát thì tốt.
+
+-- Thưa bà, tôi không buồn ngủ. Bây giờ độ mấy giờ ạ?
+
+-- Thưa ông, hơn tám giờ. Ông có thấy sốt không?
+
+-- Thưa không.
+
+-- Thế thì chỉ độ mai là ông đi lại được.
+
+Hạnh bâng khuâng buồn. Và chàng cố giữ một tiếng thở dài. Chàng vẫn hay có tính thở dài, nhất những khi buồn. Cái đó đã đành. Nhưng nhiều khi không buồn, chàng cũng thở dài. Có lẽ cái nết xấu ấy đã thành một thói quen do tạng yếu đuối sinh ra. Chàng nhớ một lần vào hiệu Gô-Đa mua hàng, lúc đứng chờ trả tiền, chàng bỗng thốt ra một tiếng thở dài não nuột, khiến cô giữ quỹ ngửng lên nhìn chàng mỉm cười. Người bạn cùng đi với chàng chế nhạo chàng mãi, vì tưởng chàng mê cô đầm lai xinh đẹp.
+
+-- Thưa bà, bà chắc mai tôi đi được?
+
+-- Vâng, chắc lắm. Vết thương không nặng gì.
+
+Hạnh nói dối một câu để người thiếu phụ khỏi ngờ vực lòng mình.
+
+-- Thưa bà, là vì tôi có việc cần ở tỉnh... Cần phải ra ngay.
+
+-- Sao ban nãy ông không nhờ nhà tôi giúp?
+
+-- Thưa bà tôi quên.
+
+Kỳ thực chàng không có việc gì ở tỉnh. Chẳng qua được nghỉ mấy ngày thì ra chơi nhà một người bạn đồng nghiệp, trước đây học ở trường huyện, vừa đổi ra trường tỉnh mấy tháng trước.
+
+Một thằng bé mặc chiếc áo len đan chạy vào phòng.
+
+-- Mẹ!
+
+-- Bản, chào ông đi!
+
+Thằng bé trố mắt nhìn Hạnh. Người mẹ giục:
+
+-- Kìa Bản chào ông đi.
+
+Thằng bé cười hóm hỉnh, nói:
+
+-- Lạy ông ạ.
+
+-- Không dám, chào cậu.
+
+Hạnh hỏi bà chủ:
+
+-- Thưa bà, cậu này là thứ mấy?
+
+-- Thưa ông, tôi mới có một cháu này. Năm nay cháu lên sáu. Bản, lấy sách ông xem đi. Ông giáo đấy, con ạ. Rồi mẹ cho con đến trường học ông giáo nhé?
+
+Bản giọng nũng nịu:
+
+-- Không con chả học ông giáo, ông giáo hay đánh lắm.
+
+Hạnh cười:
+
+-- Không, tôi không đánh Bản đâu. Bản cứ đến trường học, tôi yêu Bản lắm cơ.
+
+Bản kéo mẹ ngồi xuống ghế và ngồi vào lòng. Cái cảnh tượng âu yếm và cảm động ấy khiến Hạnh hồi tưởng lại tuổi thơ ấu lạnh lẽo của mình. Chẳng bao giờ Hạnh được ngồi trong lòng ấm áp một người đàn bà thơm tho. Vú em nuôi Hạnh chỉ là một người nhà quê to béo cục cằn và hôi hám.
+
+-- Nào, Bản đọc bài cho ông giáo nghe nào!
+
+Bản nghiêng đầu lườm Hạnh và phụng phịu nói:
+
+-- Không đọc!
+
+Điệu bộ ấy của đứa con nuông làm cho Hạnh càng tủi thản. Cái đời buồn tẻ, không tình cảm đã ảnh hưởng tới ngôn ngữ và cử chỉ trở nên cứng cỏi của chàng. Không bao giờ chàng được vỗ về, ôm ấp. Cũng không bao giờ chàng muốn ngắm sự âu yếm dịu dàng của những người khác đối với nhau. Chàng đã quen cho đó là toàn những sự lố lăng hay giả dối.
+
+-- Bản không ngoan nhé!
+
+Người mẹ mắng yêu con rồi tươi cười bảo Hạnh:
+
+-- Thưa ông, cháu ngộ nghĩnh lắm cơ ạ. Nào, Bản nói tiếng tây như cậu cho ông giáo nghe nào. Nào, nói đi! À, đố Bản biết chữ gì là người ốm nào?
+
+Bản hất cằm, đáp:
+
+-- Le malade!
+
+Rồi chừng để khoe, nó đọc luôn:
+
+-- Le malade a bu du café là người ốm đã uống nước cà phê.
+
+Bà chủ như chợt nhớ ra đứng phắt dậy.
+
+-- À! Để me xuống bảo nó bưng cà phê sữa lên ông giáo xơi.
+
+Rồi nàng vội vã bước ra khỏi phòng. Bản nắm áo chạy theo sau.
+
+Tiếng thở dài giữ mãi, bây giờ Hạnh mới buông ra được.
+
+---
+
+Chàng ngồi dậy. Đầu chàng lảo đảo quay thái dương dập bần bật vì bị bóp chặt trong những vòng vải thưa. Chàng toan cố gượng bước xuống đất, ra ngồi ở cái ghế cói đặt trước lò sưởi nhưng thấy chóng mặt quá chàng lại nằm xuống: "Cứ thế này thì khó lòng mai đi được". Ý nghĩ ấy đem vao lòng Hạnh một cảm giác êm đềm, cái êm đềm lười biếng của kẻ nằm trong chăn những ngày mưa lạnh.
+
+Bên ngoài, trời dần dần tối. Hạnh cảm thấy thế, trước khi nhìn khoảng trời xám qua cửa sổ. Như có cái màn vô hình dệt bằng sương mù màu u ám nhẹ nhàng chùm lên vai chàng.
+
+Gió đưa cành cam đập vào cửa kính. Hạnh vơ vẩn mong hai cánh cửa lại tung ra một lần nữa để được ngắm mấy quả cam béo mọng, da rám hồng như đã hút lấy hết cả ánh nắng dịu mùa đông. Mắt Hạnh dán vào cái khung chữ nhật, cố nhận rõ hình những lá đen. Những chút ánh thừa buổi hoàng hôn đã thoáng qua. Chàng chỉ còn thấy một khoảng đen trên bức tường phớt màu vàng nhợt của than hồng...
+
+Yên lặng làm Hạnh bức rứt khó chịu. Không còn cả tiếng lách tách trong lò sưởi, vì củi cháy đã tàn. "Họ quên mình chăng?" Câu chuyện của người đàn bà lúc ban chiều trở lại trong tâm trí Hạnh: "Hơn hết là mình cũng quên họ đi, và ngủ một giấc đến sáng mai dậy sớm". Trong đời Hạnh, ít khi Hạnh khó ngủ. Nghe bạn nói trằn trọc suốt đêm, Hạnh không thể tin được, vì cứ đặt mình xuống giường độ dăm phút thì chàng đã "không biết trời đất gì nữa". Người ta bảo chàng rằng đó là một quý tướng của một người vô tư lự. Tư lự thì quả Hạnh không tư lự bao giờ. Vả trong đời chàng, trong cái đời nhạt nhẽo, tẻ ngắt của chàng, cái gì cũng không đáng kể, cả những thống khổ về thể chất và tinh thần.
+
+Những cái đau đớn khổ sở ấy không đủ lực lượng để khiến được Hạnh buồn phiền đến mất ngủ chăng?
+
+Hồi tưởng lại thời thơ ấu, và cố tìm ra những nỗi thống cực, chàng chỉ nhớ một mớ cảm giác lờ mờ: Những sự hành hạ, ức hiếp đã biến trong lãnh đạm, trong quên lãng. "Lần này có lẽ là lần đầu tiên thân thể mình bị đau đớn ê chề?"
+
+Hạnh mỉm cười nghĩ đến chữ ê chề: "Chỉ trong văn chương người ta mới dùng chữ ê chề. Chứ chưa bao giờ mình được đau đớn ê chề. Sáng nay mình ngất đi, lúc tỉnh dậy mình tưởng như vừa thức giấc... Giá mình gẫy một tay hay một chân... thì không biết mình ra sao?"
+
+Đấy là về thể chất. Còn về tinh thần? Về linh hồn? Hạnh nhớ một lần đến thăm người vừa mồ côi cha. Chàng thấy bạn gào khóc thảm thiết, và lăn vào ôm lấy thây cha rồi ngất đi. Chàng cho có lẽ người ta chỉ đau đớn vì những sự đau đớn to tát về tinh thần mà thôi. Nhưng nghĩ đến cha, nghĩ đến hết mọi người sống quanh mình, Hạnh không thấy một ai yêu mến mình để lúc chết, mình có thể thương tiếc, khổ sở được. Chàng kết luận: "Mình là một người không vui, không buồn, hay có vui có buồn, thì cái vui cái buồn cũng vô vị!" Và chàng mỉm cười.
+
+Phòng tối hẳn. Lửa trong lò sưởi đã tắt. Hạnh có cảm giác giá lạnh tuy chàng nằm trong chăn ấm. Lần này thì chàng chắc chắn, chàng yên trí rằng người ta quên mình. Nhớ tới cốc sữa cà phê mà bà chủ nhắc ban này, chàng chua chát nghĩ thầm: "Quên mình thì quên, nhưng quên cốc sữa cà phê đã hứa thì thật là một sự mỉa mai... và đau đớn".
+
+Một chút ánh vàng thấp thoáng rung rung trên màn ren. Hạnh đoán chừng người ta đã bắt đầu thắp đèn phòng khách. Quả thực, phòng Hạnh dần dần bớt tối, rồi Hạnh nghe rõ trong yên lặng hoàn toàn tiếng vo vo đều đều của cây đèn măng sông đương cháy: "Có lẽ trừ ông chủ ra, những người trong cái nhà này toàn là đàn bà với một thằng bé con!"
+
+Nhưng để chứng thực ý nghĩ của Hạnh, một đứa thị tỳ cầm cây đèn dầu hỏa đi vào phòng. Ánh sáng nhuộm hồng, cái mặt bầu bĩnh trở nên xinh xinh. Hạnh đăm đăm nhìn, nói:
+
+-- Cám ơn... chị nhé.
+
+Người ở gái để đèn lên mặt lò sưởi và quay lại:
+
+-- Thưa, ông thức? Bà con cử tưởng ông ngủ. Vậy để con bưng cà phê lên ông xơi.
+
+-- Thế bà đã xơi cơm chưa?
+
+-- Thưa ông, bà con còn đợi ông con về.
+
+-- Ông đi vắng chưa về?
+
+-- Vâng, ông con đánh xe tiễn quan đốc ra tỉnh.
+
+Sau một giây yên lặng, Hạnh thở dài, lẩm bẩm:
+
+-- Tôi làm phiền ông bà quá, nhỉ?
+
+Nhưng người đầy tớ gái không đáp, vội vã bước ra khỏi phòng. Hạnh nhìn theo, lòng mừng thầm: "Ừ có thế chứ! Chẳng lẽ lại quên được!"
+
+Một lát sau, người ấy bưng vào một cái khay đựng cốc sữa và chiếc bánh mì, và đặt lên bàn ngủ:
+
+-- Ông có ngồi dậy được không?
+
+Hạnh nhớ cái cảm giác êm ấm lúc được bà chủ nâng đầu cho uống nước. Và chàng toan đáp: "Không". Nhưng chẳng hiểu sao, chàng chống tay ngồi dậy.
+
+-- Này chị Sen!
+
+Người đầy tớ gái nghiễm nhiên trả lời:
+
+-- Thưa ông, tên con là Nhàn.
+
+-- Thế à?
+
+Hạnh bẽn lẽn khó chịu:
+
+-- Bánh tây mua đâu đấy, chị Nhàn?
+
+-- Thưa ông, sáng nay ông con mua ở tỉnh về... Thưa ông xơi chẳng nguội.
+
+Hạnh cầm thìa quấy sữa.
+
+-- Bà xơi cơm chưa?
+
+Hình như Nhàn cũng không nhớ rằng ông giáo đã hỏi câu ấy rồi, nên đáp bằng một giọng rất tự nhiên:
+
+-- Thưa ông, bà con còn chớ ông con về mới ăn.
+
+-- Vậy ông chưa về?
+
+-- Chưa ạ.
+
+Hơi cà phê sữa thơm tho bốc lên mũi càng làm tăng lòng đói của Hạnh. Nhưng chàng tưởng nên có cử chỉ thong thả, nhã nhặn trước mặt người thị tì. Vì thế chàng cầm thìa quấy hoài, chờ người con gái đi ra rồi mới dám bẻ bánh nhai ngốn ngấu.
+
+---
+
+Nửa đêm Hạnh thức giấc giữa những tiếng chó sủa và những tiếng giầy lộp cộp bên phòng khách. Rồi có tiếng dép trên cầu thang. Đêm khuya thanh vắng, người ta nghe rất rõ những tiếng động nhỏ. Hạnh nhận thấy cả tiếng mưa rỏ giọt trong lá.
+
+Bỗng tiếng bà chủ kỳ kèo chồng, giọng gắt gỏng dữ dội chứ chẳng còn mềm mỏng hiền lành nữa.
+
+-- Sao mình về khuya thế? Có biết mấy giờ rồi không?
+
+Người chồng giọng mệt nhọc, rồi sau một cái ngáp kêu.
+
+-- Cụ Tuần giữ đánh tổ tôm.
+
+-- Tổ tôm! Thế không biết từ chối à, không biết nói nhà có khách à?
+
+Lâm cười vui vẻ:
+
+-- Chết chửa, tôi quên bẵng nhà có khách! Ông giáo ấy, phải không? Thế nào, ông ta khỏi hẳn chưa?... Vậy ông ta vẫn nằm ở phòng bên?
+
+-- Chứ còn nằm ở đâu?
+
+-- Thế ông ta có ăn cơm đấy chứ?
+
+-- Ăn sữa cà phê với bánh tây thôi.
+
+Giọng người đàn bà đã dịu dàng hơn, bình tĩnh hơn. Hạnh nhận thấy điều đó với tất cả lòng cám ơn. Chàng cho rằng vì nhớ đến mình mà bà chủ đồn điền nguôi cơn giận.
+
+Rồi hai vợ chồng lên gác. Rồi yên lặng lại chiếm lấy khu đồn điền.
+
+---
+
+Sáng hôm sau, Hạnh dậy sớm. Khoảng trời hồng lấp loáng qua những miếng kính cửa sổ báo trước một ngày tạnh ráo, tốt đẹp.
+
+Hạnh quay đầu sang hai bên thấy bớt đau liền mừng rỡ bước xuống đất. Cái áo lót chàng mặc nát nhầu và dính đất vàng. Chàng vội đi tìm cái cặp da để lấy quần áo thay, và thấy nó ở dưới gầm cái bàn cói bày giữa hai cái ghế bành.
+
+Đoạn Hạnh mở cửa sổ nhìn. Một cảnh rực rỡ: một vườn cam sành rộng bát ngát và vây lấy mấy nếp nhà gạch. Những quả bắt đầu rám đỏ, nặng trĩu rủ xuống gần sát đất. Một con chim khuyên tí tách nhảy chuyền những cành thưa lá, đậu vào cuống quả cam, ngoẹo đầu, nghiêng mắt nhìn, bắt sâu.
+
+Trong lá bưởi, một con chim chích chòe hót từng hồi dài. Trên đầu Hạnh, dưới khe mái ngói, đàn sẻ kêu chiêm chiếp liên thanh.
+
+Hạnh cho là chim muông chào mừng một ngày quang đãng. Và chàng nghĩ tới những câu văn sáo trong những bài luận của bọn học trò lớp nhất. Nhưng chàng cũng thấy lòng vui.
+
+Chàng muốn ra vườn cam dạo một vòng. Chợt nhớ tới những tiếng chó sủa dữ tợn tối hôm trước, chàng lo lắng nhìn xuống bếp để tìm xem hình thù mấy con chó như thế nào. Bất giác chàng gọi:
+
+-- Chị Nhàn!
+
+Người đầy tớ gái, mắt còn ngái ngủ, chạy lên:
+
+-- Thưa ông gọi con?
+
+Hạnh định nhờ coi chó và đưa ra vườn nhưng chàng chỉ nhút nhát hỏi:
+
+-- Ông dậy chưa, chị?
+
+-- Thưa ông chưa. Chỉ mới có bà con dậy sớm...
+
+-- Bà dậy sớm nhỉ?
+
+-- Thưa ông, ông khỏi hẳn rồi?
+
+-- Phải, tôi khỏi hẳn rồi... Tôi định... chào ông bà để xin đi.
+
+-- Vậy ông để con mời bà con lên.
+
+Dứt lời, Nhàn đi thẳng ra khu vườn phía trước. Một lát sau, bà chủ và Lan cùng vào phòng; Lan nói như reo mừng:
+
+-- Ông giáo đã dậy được!
+
+Hạnh vội khoác cái áo da sù lên mình, rồi nghiêng đầu chào. Bà chủ hỏi:
+
+-- Ông còn đau không?
+
+-- Thưa bà, tôi khỏi hẳn rồi... Chỉ còn hơi... rức đầu thôi.
+
+-- Vậy ông cứ nằm nghỉ ở đây, bao giờ khỏi hẳn hãy đi... ông đừng ngại điều gì hết, cứ coi như ở nhà.
+
+Hạnh ấp úng:
+
+-- Thưa bà, nếu không có ông bà cứu giúp thì... Thực ơn ông bà...
+
+Bà chủ ngắt lời:
+
+-- Thưa ông nói ơn với huệ làm gì! Giúp đỡ nhau trong khi hoạn nạn đó là bổn phận của mọi người. À! Thưa ông hôm qua ông có ngủ được không?
+
+-- Cảm ơn bà, tôi ngủ nhiều lắm. Nửa đêm thức dậy chỉ độ mười phút rồi lại ngủ ngay.
+
+Lan nhìn chị dâu:
+
+-- Chừng ông giáo thức dậy lúc anh về.
+
+Bà chủ tiếp luôn:
+
+-- Vâng, chừng thế, phải không? Thưa ông, chúng tôi làm mất giấc ngủ của ông?
+
+Hạnh vội nói:
+
+-- Thưa bà, không ạ.
+
+Chàng chẳng tìm được ý gì để tỏ với người đàn bà rằng mình không nghe thấy những lời kỳ kèo chồng của người ấy tối hôm trước. Chàng cũng chẳng biết đánh trống lảng nữa. May có Lan giúp chàng khỏi chỗ khó khăn:
+
+-- Thưa ông xe đạp của ông quằn bánh, anh Tài đã chữa xong rồi.
+
+Câu nói đột nhiên. Nhưng Hạnh cho là hữu ý. Chàng nghĩ thầm: "Cô ta muốn đuổi mình đi. Phải, mình ở đây làm phiền bao nhiêu người, đi là phải". Chàng nhìn Lan như để cảm ơn đã có nhã ý bảo ngầm cho mình biết và chàng nói với bà chủ.
+
+-- Thưa bà, tôi xin thành thực cảm ơn ông bà và cô đã có lòng tốt đối với tôi. Bây giờ thì xin... kính chào ông bà và cô... tôi đi.
+
+Câu nói dài quá làm cho Hạnh thở hổn hển vì cảm động.
+
+-- Nhưng ông còn mệt lắm.
+
+-- Tôi đi được ạ.
+
+-- Vậy ông nhất định đi.
+
+Không chờ câu trả lòi, bà chủ ra khỏi phòng gọi người nhà sắp ăn sáng. Hạnh lại nghĩ thầm:
+
+"Cả bà chủ cũng khó chịu vì mình. Bà ta muốn tống cổ mình đi ngay cho rảnh mắt! Thì mình đi chứ sao!"
+
+Và chàng thở dài, vơ vẩn nhìn ra vườn.
+
+Những quả cam lóng lánh trong ánh nắng buổi sớm. Hạt mua còn đọng lại trên lá. Hạnh ví với hạt minh châu, tuy chàng không biết hạt minh châu là hạt gì.
+
+Ở chân lũy tre xa, hơi sương bốc lên một màu lam đục, Hạnh thốt ra một câu khen:
+
+-- Đẹp!
+
+---
+
+Hạnh thấy bóng người ở gái phản chiếu trong kính cửa sổ, nhưng chàng không quay đầu lại, làm như mê mải ngắm vườn cam. Sự thực, chàng đương mong người ta bưng bữa ăn sáng vào, vì sau một ngày nhịn cơm chàng đói ngấu: Cốc sữa với chiếc bánh mì tối hôm trước chỉ như món khai vị làm cho dạ dầy chàng nôn nao thêm.
+
+-- Thưa ông, có nước nóng rồi đấy ạ.
+
+-- Nước sôi à? Đâu, chị?
+
+-- Thưa ông ở bên buồng "toa lét".
+
+Hạnh kinh hoảng nghĩ thầm:
+
+"Thì ra nước rửa mặt, mình lại cứ tưởng nước sôi pha sữa. May mà câu hỏi của mình mập mờ, chứ nếu mình nói rõ ra là nước sôi pha sữa thì còn gì là thể diện".
+
+Như phần nhiều người nhút nhát, Hạnh rất hay lo mất thể diện, nhất khi đứng trước đàn bà.
+
+-- Mời ông sang rửa mặt rồi xơi sáng ạ.
+
+Hạnh đáp lại một tiếng "À!" thì thào như hơi gió trong cổ họng. Rồi hấp tấp ra phòng khách.
+
+-- Thưa ông buồng "toa lét" ở đây cơ ạ.
+
+Nhàn trỏ phía trước. Đó là một mẩu hiên ngăn ra bằng một bức bàn sơn màu xanh nhạt.
+
+Hạnh mở cửa thò đầu nhìn vào trong. Thấy cái thùng kẽm gần chiếm kín bề ngang hiên, chàng đột ngột kêu:
+
+-- À! Buồng tắm!
+
+-- Vâng, phòng "toa lét".
+
+Câu trả lời đi liền với một cái mỉm cười rất tự nhiên và thẳng thắn mà Hạnh tưởng có ngụ một ý nghĩa mỉa mai. "Dễ nó ngờ mình không hiểu nghĩa chữ toilette của nó chăng?" Chàng cáu kỉnh hỏi:
+
+-- Chị cũng biết chữ tây chữ tiếc cơ đấy?
+
+Người đầy tớ gái ngơ ngác nhìn Hạnh. Vì tiếng "phòng toa lét" nàng chỉ nói theo chủ mà chẳng hiểu đó là tiếng tây.
+
+-- Được, cảm ơn chị.
+
+Hạnh đứng vào trước bàn rửa mặt, một cái bàn sơn trắng đã cũ, ở giữa đục thủng một lỗ tròn để lọt trên cái chậu sứ giang tây men màu sặc sỡ. Cái gương chữ nhật, khung gỗ treo thấp khiến Hạnh phải khuỵu gối mới nhìn thấy bóng mặt mình, cái bóng lờ mờ như hiện ra trong sương mù buổi sớm: hơi nước nóng bốc lên đã phủ đây một lớp bụi nhỏ. Chàng kêu thầm: "Flou arlislique!" [^1]
+
+Thực vậy, hình chàng hiện ra như một bức ảnh mỹ thuật trong một tạp chí chiếu bóng bên Pháp. Chàng ngắm nghía với một ý nghĩ tự ái. Cái vải băng trắng quấn vòng đầu kẻ một chữ nhân trên trán. Chàng thấy mình như vụt biến thành một ông hoàng Ả Rập trong những truyện "Sách Hồng" đọc ngày xưa. Và chàng mơ màng như lạc tới một cảnh mộng, một cảnh êm đềm, một thế giới lạ lùng mà chàng tưởng tượng có đoàn phụ nữ.
+
+-- Mời ông rửa mặt rồi sang phòng ăn xơi sáng.
+
+Hạnh giật mình vội đáp:
+
+-- Được.
+
+Rồi dúng khăn bông vào chậu nước, nói tiếp:
+
+-- Cái gương này treo khá thấp thành thử cứ phải cúi xuống mới soi được.
+
+-- Bẩm có nhẽ ông cao quá.
+
+-- Ừ có nhẽ.
+
+Hạnh mỉm cười, nhớ tới tấm thân béo lùn của ông chủ và tầm vóc nhỏ nhắn của bà chủ.
+
+-- Chị có cái... khăn lau, lau qua cái gương hộ tôi.
+
+Không nghe thấy tiếng trả lời, Hạnh quay lại người đầy tớ gái đã đi rồi.
+
+Rửa mặt xong, Hạnh nhìn thấy lọ nước hoa pha loãng màu trắng hồng, cái ốc ở đầu nút đã vặn ra. Chàng cầm lấy gội lên tóc và cái băng quấn đầu. Thoang thoảng một mùi thơm. Đó chỉ là một thứ nước xức tóc xoàng của đàn ông, nhưng Hạnh cho hương thơm của nó hoàn toàn có tính cách phụ nữ, hầu như mùi da thịt đàn bà mà chưa bao giờ chàng đã được gần gụi thân mật.
+
+Hạnh nhớ một lần cách đây hai năm, anh em đồng nghiệp rủ đi hát ả đào ở tỉnh. Một đào nương mũm mĩm, cô Lan, lấm lét nhìn chàng, khiến chàng cảm thấy rạo rực tình yêu. Người ta ẩy chàng vào lòng Lan, chàng vùng vẫy ngồi nhích ra, nhưng lặng thinh để mặc Lan nghếch đùi lên đùi mình. Đêm hôm ấy về trường, Hạnh bâng khuâng nhớ người ả đào, và trong luôn mấy tuần lễ mùi nước hoa nhài hăng sè của người ấy phảng phất trong tâm hồn chàng. Từ đấy hễ thoáng ngửi thấy mùi nước hoa là chàng lại chợt nghĩ đến đàn bà, nghĩ đến một cách thản nhiên, không ham muốn.
+
+Lần này mùi nước xức tóc đưa trí nhớ Hạnh tới một kỷ niệm gần hơn, âu yếm hơn: cái nàng đầu nhẹ nhàng trưa hôm trước của bàn tay mát trong làn không khí thơm tho.
+
+---
+
+-- Mời ông xơi sáng.
+
+Hạnh lặng lẽ quay ra, đi theo người đầy tớ gái.
+
+-- Ở đâu, chị?
+
+-- Thưa ông ở phòng ăn.
+
+Nguời kia đưa Hạnh qua phòng khách. Hạnh ngước nhìn hai bức ảnh phóng đại treo trên lò sưởi và nghĩ thầm: "Chắc song thân ông chủ". Một ý nghĩ khác theo liền ngay: "Chừng ông ta hồi còn nhỏ được cha mẹ quý mến lắm". Và chàng thoáng tưởng tới cha mẹ già đã về hưu hiện ở nhà quê, một làng tầm thường miền trung châu với những nếp nhà lợp rạ san sát nhau như bát úp, và những ruộng lúa sàn sàn, bằng phẳng chạy thẳng tấp đến những lũy tre xa. Trước kia, mỗi năm Hạnh về làng thăm cha mẹ bốn lần vào các dịp nghỉ hè, tết nguyên đán và hai ngày giỗ chính: chàng về thăm lấy lệ để khỏi mang tiếng là đứa con bất hiếu. Nhưng hai năm nay Hạnh chỉ ở nhà vừa đúng ba ngày tết. Chàng nói với cha mẹ rằng nghỉ hè chàng bận dạy tư, không về được. Cha mẹ chàng cũng không bắt bẻ, hơn thế, chẳng thèm lưu ý đến sự có mặt của chàng ở nhà. Hạnh không lấy thế làm tủi nhục, và làm cho cha mẹ anh em đã trót lãnh đạm với mình ngay từ thời mình còn nhỏ thì nay cũng khó lòng mà ân cần, tử tế với mình được. Ở đời mọi việc, mọi sự đều do thói quen cả...
+
+-- Mời ông xơi sáng.
+
+Hạnh luống cuống:
+
+-- Vâng ạ. Cảm ơn bà.
+
+Bà chủ niềm nở kéo ghế nói:
+
+-- Ông ngồi đây.
+
+Hạnh yên lặng ngồi xuống, hai cánh tay tì lên khăn bàn trắng, hai bàn tay chắp lại, rít chặt. Những lúc ngượng ngập, Hạnh khổ sở nhất vì hai bàn tay, chẳng biết để vào đâu, và dùng làm việc gì.
+
+Bốn chiếc bánh mì đặt trong bốn cái dĩa. Hạnh lo lắng tự nhủ: "Ăn cơm tây à?"
+
+Bà chủ rót nước chè ra ba chén và nói:
+
+-- Ông tha lỗi cho nhà tôi. Nhà tôi chưa dậy vì hôm qua thức quá khuya.
+
+Hạnh hấp tấp toan đáp: "Thưa bà tôi biết thế". Nhưng chàng giữ ngay lại được, và mừng thầm rằng đã may mắn tránh khỏi được điều lầm lỡ.
+
+-- Mời ông nếm thử chè nhà.
+
+Tiếng "nhà" Hạnh nghe thân mật quá. Và tự nhiên chàng sung sướng.
+
+-- Thưa ông năm nay tôi bắt đầu làm "thé noir", chắc chưa được khéo... chắc còn vụng.
+
+Hạnh vội đáp:
+
+-- Thưa bà khéo đấy chứ...
+
+Bà chủ mỉm cười, cái mỉm cười tiếp khách, nhưng Hạnh cho là một cái mỉm cười chế nhạo. Vì chàng nhận thấy rằng câu khen của mình hớ quá, vô lý quá: đã uống đâu mà biết khéo hay vụng. Chàng liền nói chữa:
+
+-- Thưa bà hương chè bốc lên thơm ngát.
+
+-- Vâng, thưa ông hương "thé noir" tôi vẫn yêu thương "thé vert".
+
+Hạnh lặng lẽ nâng chén nước, để khỏi phải trả lời, vì chàng chẳng biết "thé noir" là chè gì.
+
+-- Ấy, thưa ông chưa có đường.
+
+Lan vừa nói vừa đứng dậy cầm thìa xúc miếng đường bỏ vào chén nước mà Hạnh giơ ra.
+
+-- Thưa ông phải dùng hai miếng mới đủ ngọt.
+
+-- Thưa cô... cảm ơn cô.
+
+Hạnh định nói: "Tôi quen uống không đường". Nhưng chợt nhớ đến thứ "chè đen" lạ lùng mà mình chưa dùng qua, chàng lại ngồi im. "Chừng chè ô long... Thì sao không gọi là chè ô long lại gọi kiểu cách là thé noir!"
+
+Ngẫu nhiên, Lan như giảng nghĩa cho Hạnh hiểu. Nàng nhắp môi và bảo chị dâu:
+
+-- Chè của chị chẳng kém gì chè Ceylan.
+
+Bà chủ cười:
+
+-- Hơn ấy chứ chị! Có phải không ông giáo?
+
+Hạnh uống một hớp, rồi làm bộ thành thạo ngẫm nghĩ.
+
+-- Vàng, hơn nhiều!
+
+-- Hơn một tí thôi. Nhưng mời ông xơi chẳng nguội... Bánh tây hôm qua nướng lại, ông xơi tạm. Hôm nay xe hàng họ chưa đưa bánh đến. Phải chờ chín giờ mới có chuyến xe Tuyên qua đây.
+
+Lan đáp:
+
+-- Thưa chị pain noir [^2]ăn càng lành.
+
+Hạnh vừa bẻ bánh vừa nghĩ thầm: "Hết thé noir đến pain noir! Còn gì noir [^3]nữa?"
+
+-- Mời ông xơi jambon [^4]. Jambon nhà làm đấy ạ, ông thử dùng xem có khác lợn thường không?
+
+-- Vậy, thưa bà, đây là lợn tây?
+
+-- Lợn rừng ạ.
+
+Mặt Hạnh nóng ran. Chàng lấm lét nhìn Lan, xem nàng có mỉm cười không. Không thấy nét mặt thiếu nữ đổi khác, chàng tự an ủi: "Người ta cũng có thể làm jambon bằng đùi lợn tây được lắm chứ".
+
+-- Sao chị không lấy ruốc ra ăn?
+
+Câu hỏi của Lan, Hạnh cho nó ẩn nghĩa chê mình quê mùa.
+
+-- Cô thích ăn ruốc!
+
+-- Thưa chị em thích lắm. Lọ ruốc chị gửi vào trường cho em, em phải giấu kỹ để ăn dè, nếu không lũ quỷ nó cướp hết.
+
+Bà chủ quay sang nói với ông khách:
+
+-- Thưa ông, cô Lan em nhà tôi hiện học năm thứ tư trường Đồng Khánh.
+
+Hạnh ngả đầu chào. Lan cũng nghiêng đầu chào lại. Hạnh nghĩ thầm: "Thảo nào mà họ thành thạo. Một người làm cô đỡ, một người học năm thứ tư".
+
+-- Thưa cô, nghỉ lễ Noel, cô về thăm ông chủ, bà chủ?
+
+-- Vâng.
+
+Những kỷ niệm thời còn theo học trường Bảo hộ chỉ lờ mờ hiện ra trong trí nhớ Hạnh. Vào dịp Noel, không lần nào Hạnh về thăm nhà hay đi chơi đâu xa, nên lễ ấy cũng không để một vết sâu trong ký ức chàng như đối với học trò khác.
+
+-- Thưa ông, ông có thích đi bắn không?
+
+Hạnh lạnh lùng đáp:
+
+-- Thưa bà không ạ.
+
+-- Nhà tôi thì mê săn bắn lắm. Mọi lễ Noel anh em lên chơi đi bắn rất đông. Năm nay chẳng thấy một mống nào. Tưởng ông thích thì mời ông ở lai đi bắn với nhà tôi. Nhà tôi có hai cây súng, một cây calibrc [^5]12, một cây calibre 16.
+
+Lan nhìn đầu Hạnh đáp:
+
+-- Nhưng ông giáo còn đau, đi bắn đâu được!
+
+-- Ờ! Tôi quên nhỉ! Ông còn đau không ạ?
+
+Hạnh vui vẻ trả lời:
+
+-- Thưa bà, tôi khỏi hẳn rồi a.
+
+Và chàng tiếp luôn một câu đẹp đẽ mà chàng nghĩ ra từ nãy:
+
+-- Thưa bà, nếu bà không nhắc thì có lẽ tôi quên rằng tôi bị thương.
+
+-- Thế à? Nhưng mời ông xơi đi chứ.
+
+Bà chủ rót thêm nước chè vào chén ông khách:
+
+-- Thưa ông, nhà hết bơ tươi, ông dùng tạm bơ mặn.
+
+-- Thưa bà được ạ, tôi ăn quen bơ mặn.
+
+Sự thực Hạnh chẳng dùng bơ bao giờ.
+
+-- Nhưng ruốc chị vẫn chưa lấy cho em.
+
+-- Ồ! Xin lỗi cô, chị quên.
+
+Bà chủ đứng dậy mở tủ lấy một cái phẫu thủy tinh đặt vào giữa bàn:
+
+-- Đây, ruốc của cô. Thưa ông, ông có xơi được ruốc không ạ?
+
+Hạnh cúi nhìn mẩu bánh mi nhỏ xíu còn lại:
+
+-- Xin thôi ạ.
+
+Nhưng bà chủ đã nhìn theo và nhận thấy ông khách hết bánh. Bà liền nhắc chiếc bánh phần chồng đặt vào đĩa của Hạnh. Hạnh lặng thinh, quay ra phía cửa sổ, vì chàng còn đói lắm không muốn từ chối chiếc bánh thứ hai.
+
+Bà chủ trở lại câu chuyện săn bắn:
+
+-- Giờ này mà đi bắn thì tuyệt!
+
+-- Thưa bà, bà cũng thích đi bắn?
+
+-- Vâng, bắn những chim gáy, chim dẽ xì xằng thôi.
+
+Bất giác, Hạnh ngắm nghía cái thân hình nhỏ nhắn của người đàn bà xinh đẹp: "Phải thú nhận rằng làm thằng đàn ông như mình mà chưa được bắn một phát nào, điều đó thực là một điều nhục nhã!" Một lần Hạnh đi dạo chơi với một người bạn ở vùng quê. Bạn không hẳn đi bắn, nhưng cũng đeo súng đạn để nếu ngẫu nhiên gặp chim thì bắn chơi, tiêu khiển. Bỗng thấy một con gáy đậu trên cành xoan thưa lá, người bạn lắp đạn rồi đưa súng mời Hạnh bắn một phát. Hạnh thấy lạnh cả người, nói thoái thác rằng đau tim, thầy thuốc cấm, không được bắn. Cái lý đau tim, kiêng bắn, Hạnh không nhớ đã nghe ai nói hay đã đọc được ở sách nào hay là đã bịa đặt ra. Hôm nay chợt nghĩ tới, chàng lại đem ra nói với bà chủ:
+
+-- Thưa bà, tôi không dám bắn... nữa, vì tôi đau tim.
+
+Bà chủ kêu:
+
+-- Tội nghiệp! Ông đau tim?
+
+-- Vâng... đau nhẹ thôi. Khi nổ cò súng, tim hồi hộp khó chịu lắm.
+
+-- Vâng, có thế.
+
+Cái bánh thứ hai đã hết. Hạnh đứng dậy:
+
+-- Xin cảm ơn bà... Bây giờ thì xin phép bà tôi đi.
+
+-- Giá ông ở lại chơi đến chiều... Còn nghỉ lễ Noel thì tưởng ông cùng chả vội gì.
+
+Hạnh ngần ngừ toan nhận lời ở lại. Nhưng chợt nhớ hôm trước đã trót nói có việc cần ở tỉnh, chàng liền đáp:
+
+-- Xin bà cho khi khác.
+
+-- Vậy xin ông hãy ngồi chơi bên phòng khách để tôi làm pansement lại cho được cẩn thận.
+
+-- Thưa bà, phải làm lại?
+
+-- Vâng như thế thì chắc chắn hơn.
+
+Bà chủ lên gác, chừng để lấy vải băng và các thức cần dùng, Hạnh thong thả sang phòng khách.
+
+---
+
+Sau khi băng bó lại, Hạnh thấy không thể còn nấn ná được nữa, đứng dậy xin đi. Bà chủ và Lan đưa chàng qua vườn cam để ra cổng, Hạnh đứng lại khen:
+
+-- Ông bà có vườn cam đẹp quá.
+
+Rồi nói xin vài quả. Nhưng bà chủ đáp cam còn xanh chưa ăn được. Bà mỉm cười tiếp luôn:
+
+-- Tôi cũng muốn biếu ông mươi quả về làm kỷ niệm... chuyến ngã xe, nhưng sợ ông nếm thấy chua lại tưởng cam đồn điền tôi không ra gì.
+
+Hạnh cho chữ "kỷ niệm" âu yếm quá. Nhưng ý nghĩ ấy vụt làm cho chàng bẽn lẽn. Chàng yên lặng nhìn theo những luống cam trong thẳng hàng quanh vườn đồi thoai thoải gốc phủ rạ gọn gàng, cành nặng trĩu những quả tròn và béo, da xù xì màu vàng rám, Hạnh muốn lại xem nhưng không dám ngỏ lời. Hình như ra ngoài trời nắng, sự thẹn thùng của Hạnh càng tăng, và sức thôi miên của hai cặp mắt sáng, và hai cái mỉm cười yên lặng càng mạnh hơn khi ở trong ánh sáng dịu nơi phòng ăn.
+
+Hạnh đương lúng túng cuống quýt thì Bản vừa thức dậy chạy đến ôm chầm lấy mẹ và nũng nịu kêu:
+
+-- Mẹ đi đâu đấy?
+
+Người đàn bà cúi xuống bế con lên hôn:
+
+-- Không, mẹ có đi đâu, mẹ vẫn ở nhà với con đấy chứ.
+
+-- Thế sao me lại đánh phấn, me lại mặc áo đẹp? Cả cô nữa?
+
+Bất giác Hạnh liếc nhìn bà chủ đồn điền và Lan. Hai người cùng trang điểm khác hôm trước: dung nhan không để mộc mạc, y phục không để xuềnh xoàng. Cái ao dạ màu nâu hồng của bà chủ đồn điền, Hạnh cho rất nhã nhặn. Đứng cạnh bà, Lan mặc chiếc áo kiểu mới màu đỏ thắm. Mà lạ thực, Hạnh không thấy nhan sắc Lan tầm thường như hôm qua nữa. Nàng đã trở nên một thiếu nữ xinh đẹp, một thứ xinh đẹp khỏe khoắn, tươi tốt như những quả cam đầy nước ngọt rung rinh đầu cành mềm, trong nắng buổi sớm mai. Và Hạnh ví ngay nàng với một cô dâu mới.
+
+Câu hỏi của Bản làm mẹ và cô gượng gùng.
+
+Thấy sự yên lặng kéo dài và khó chịu, Hạnh hỏi lảng:
+
+-- Thưa bà, cậu em bao giờ bà cho ra tỉnh học?
+
+-- Ấy, chúng tôi cũng định gửi cháu đằng ông đốc, nhưng còn nấn ná chưa muốn để cháu đi xa, sợ nhớ.
+
+Hạnh giọng mô phạm:
+
+-- Thưa bà, cho con ở xa cha mẹ là phải. Cha mẹ không bao giờ dạy được con, vì một là nuông con, hai là nghiêm khắc với con quá. Chứ không như một thầy giáo, đã thạo pédagogie [^6].
+
+Bản ngước mắc nhìn miệng ông khách và hiểu lờ mờ rằng ông ta khuyên mẹ đưa mình ra tỉnh học. Trong lòng căm tức, nó ẩy Hạnh và nói:
+
+-- Cái ông này không đi đi, cứ ở mãi nhà người ta.
+
+Bà chủ vội mắng con:
+
+-- Thằng Bản hỗn nhé. Chốc thầy dậy me mách cho đấy.
+
+Lan phàn nàn:
+
+-- Chị cứ nuông nó nên nó hỗn: phải đánh mới được.
+
+Hai câu nói khéo không đủ làm cho má Hạnh bớt đỏ. Chàng lẳng lặng tiến về phía cổng. Bỗng, có lẽ vì quá ngượng, chàng dừng lại trên lối đi lát gạch:
+
+-- Thưa bà, tôi nộp bà tiền thuốc.
+
+Bà chủ ngơ ngác:
+
+-- Thưa ông có tiền thuốc nào đâu!
+
+Nghe giọng trả lời mát mẻ. Hạnh biết mình hớ, liền nói chữa:
+
+-- Thưa bà, thế này thì khi không phải, xin bà làm ơn nộp ông đốc giúp món tiền thuốc.
+
+Buông miệng, Hạnh nhận thấy câu nói chữa càng hớ hơn, vì chàng vụt nghĩ: "Tiền thuốc thì sao mình không đem lên tỉnh mà trả?" Nhưng bà chủ đồn điền niềm nở đáp.
+
+-- Ông không phải trả gì hết. Ông đốc với nhà tôi là chỗ bạn thân. Vả có mấy tí.
+
+Hạnh thong thả tiến ra cổng.
+
+-- Thưa ông, xin ông tha lỗi cho nhà tôi. Nhà tôi hôm qua thức khuya quá, nên ngủ mệt chưa dậy được để tiễn ông.
+
+-- Thưa bà, bà cứ để ông nghỉ ạ.
+
+Hạnh nghĩ thầm: "Càng hay!"
+
+Vì sự thực Hạnh không ưa gì cái ông chủ ít điều ấy, cũng như chàng không ưa ông thầy thuốc ngạo nghễ với với cái rọc thuốc lá dài lêu nghêu của ông ta.
+
+Tới cổng, Hạnh yên lặng nhìn hai người đàn bà, chẳng biết nói gì. May có Bản gợi chuyện, hỏi mẹ:
+
+-- Ông ấy đi đâu đấy, mẹ?
+
+-- Ông giáo ra tỉnh. Con chắp tay chào ông giáo đi.
+
+Cái ý đuổi khách lại lởn vởn trong trí óc Hạnh. Chàng cầm lấy xe đạp mà người ta đã đem ra để dựa ở cạnh cổng, rồi dắt xe ra đường đứng quay lại cất mũ chào. Hai người đàn bà chắp tay vào ngực nghiêng đầu đáp lễ. Cử chỉ ấy đủ làm cho Hạnh luống cuống, ngượng nghịu. Chàng cũng vội hai tay ôm mũ ép vào ngực, ngả đầu chào lại, để cái xe đạp đổ xuống đường.
+
+Đầu nóng bừng, tay run lẩy bẩy, chàng lóp ngóp cúi xuống nhấc xe, rồi vừa đặt chân lên bàn đạp vừa chào vội vàng:
+
+-- Lạy bà ạ, lạy cô ạ.
+
+Hạnh đạp mạnh. Sau lưng, tiếng bà chủ đồn điền:
+
+-- Khi nào thong thả mời ông đến chơi.
+
+Hạnh quay đầu lại đáp:
+
+-- Xin vâng... Xin cảm ơn bà...
+
+---
+
+Đến cái quán cuối dốc đồn điền. Hạnh xuống xe. Người đàn bà bán hàng mời:
+
+-- Rước thầy vào nghỉ chân xơi nước.
+
+Hạnh dựng xe đạp vào phên liếp rồi ngồi xuống ghế dài, hỏi:
+
+-- Hàng bà hôm nay vắng nhỉ?
+
+Bà hàng niềm nở đáp:
+
+-- Thưa thầy vâng, vắng lắm. Về trưa, về chiều còn khá đông khách, chứ buổi sáng thì vắng quá.
+
+-- Vậy sao bà không để đến trưa hãy dọn hàng?
+
+Bà hàng mỉm cười nhìn khách:
+
+-- Thưa thầy ở nhà cũng chả có việc gì. Ra dọn hàng kiếm được xu nào hay xu ấy.
+
+Chợt nhận thấy cái đầu băng bó của Hạnh, bà ta hỏi tiếp:
+
+-- À! Thầy ngã xe đạp sáng hôm qua ở đây, phải không?
+
+-- Phải.
+
+-- Thưa thầy có việc gì không?
+
+-- Chả việc gì. Chỉ vỡ đầu thôi.
+
+Bà hàng nhớn nhác, mắt tròn xoe nhìn Hạnh:
+
+-- Vỡ đầu lại còn chả việc gì!
+
+-- Nhưng lành rồi bà ạ.
+
+-- Phúc đức quá!
+
+Hạnh quay nhìn về phía lũy tre đồn điền:
+
+-- May nhờ có ông Lâm bà Làm mời đốc tờ chữa giúp nên khỏi ngay.
+
+Bà hàng vẻ mặt cảm động:
+
+-- Quý hóa quá! Ông chủ, bà chủ đồn điền tốt lắm. Hay làm phúc đức lắm.
+
+Hạnh hơi khó chịu, nghĩ thầm: "Làm phúc! Họ làm phúc? Mình là kẻ nghèo khó được người ta làm phúc!"
+
+Và chàng tự trách, tự ghét mình ban nãy đã nhu nhược, không cố ép bà Làm nhận tiền trả thầy thuốc hộ. Một lần nữa chàng nhận thấy rằng mình vô lý, như chàng đã nhận thấy thế ngay lúc xin đưa tiền cho bà Lâm: "Ừ, sao mình không thân mang số tiền thuốc lên tỉnh nộp ông đốc?"
+
+-- Thưa thầy, thầy xơi nước?
+
+-- Phải, bà bán cho tôi một bát nước vối.
+
+Hạnh uống vội vàng vài hớp nước nóng, rồi ném trả một xu lên cái mâm bồng gỗ mộc.
+
+-- Thưa thầy không dùng gì nữa?
+
+-- Không.
+
+Hạnh lặng lẽ đứng dậy ra đường. Bà hàng gọi với:
+
+-- Còn thừa của thầy một trinh.
+
+-- Thôi, đãi bà.
+
+-- Cám ơn thầy.
+
+Hạnh dắt xe đạp lên dốc, lòng buồn rời rợi. Cái cảnh từ biệt bà chủ đồn điền và Lan còn như vẽ ra trước mắt chàng.
+
+Hạnh buồn không phải vì có tình quyến luyến nhưng vì nhận thấy sự vụng về, ngớ ngẩn của minh trước sự ngạc nhiên dễ dàng của hai người đàn bà. Chàng lấy làm lạ rằng sao đàn bà mà lại bạo dạn được đến thế.
+
+Có tiếng chào:
+
+-- Lạy thầy ạ.
+
+Hạnh quay nhìn: đó là một người học trò lớn tuổi theo lớp nhất, lớp Hạnh dạy:
+
+-- À anh Đăng. Anh biết tin tôi ngã?
+
+Người học trò ngơ ngác không hiểu:
+
+-- Thưa thầy con ra tỉnh chơi với người anh em bạn.
+
+-- Thế à? Vậy anh đi nhé!
+
+-- Lạy thầy ạ.
+
+Trí Hạnh trở lại với cái đời buồn tẻ cái đời ông thầy giữa một bọn học trò không thân, không yêu. Vài hôm nữa, lại đến trường, lại dạy học, lại chấm bài, lại quát mắng, lại nói, nói trong hàng giờ.
+
+Tự nhiên sau những ý nghĩ chán nản ấy, cái phòng ấm cúng, thơm tho, yên lặng hiện ra trong ký ức Hạnh. Hiện ra cùng với hai người đàn bà dịu dàng, âu yếm như người mẹ, thân mật như người chị, ngoan ngoãn như người em, nhất là đẹp mơ màng như người tình trong mộng. Nhưng đó chỉ là những hình dung từ trong tiểu thuyết. Hạnh nhận thấy thế, và càng ngầm nghĩ, Hạnh càng tủi thân. Không bao giờ mẹ chàng đã âu yếm với chàng, chị chàng đã thân mật với chàng, em chàng đã ngoan ngoãn với chàng chưa có, và ngờ rằng có lẽ không bao giờ sẽ có.
+
+Ý nghĩ chàng lại xoắn lấy hai người đàn bà. Và chàng cố nhớ xem những cử chỉ và ngôn ngữ của hai người ấy có giấu chút cảm tình gì đối với mình không.
+
+Hạnh nhận thấy có nhiều cảm tình. Và chàng sung sướng tự yêu mình: không bao giờ chàng đã yêu chàng như thế.
+
+---
+
+Hôm Hạnh đến trường dạy học thì cái vải băng quấn trên đầu đã tháo ra rồi.
+
+Hạnh không thấy đau, ngay từ buổi trở về huyện. Nhưng chàng có ý muốn ngấm ngầm giữ mãi cái vải băng dấu hiệu của bệnh chàng, của tai nạn vừa xảy ra và đưa chàng đến cách cái chết không bao xa. Bỏ nó ra là hết. Là sự lành mạnh là cái đời thường đã sống. Một cớ nữa mà có lẽ đó là cớ chính: Hạnh có chiều lưu luyến với kỷ niệm của đồn điền "Kỷ niệm êm đềm, ấm áp". Hạnh không khỏi có tư tưởng âu yếm ấy mỗi khi rờ tay lên đầu.
+
+Nhưng hôm trước Hạnh đến nơi cho thuốc để người khán hộ quấn lại băng, theo như lời dặn của ông thầy thuốc. Người ấy bảo chàng sau khi ngắm nghía vết thương:
+
+-- Còn quấn làm gì nữa cho nặng đầu. Khỏi rồi!
+
+Bất giác Hạnh nhắc lại hỏi:
+
+-- Khỏi rồi?
+
+Người khán hộ cho đó là một câu reo mừng. Sự thực, đó chỉ là một lời kinh ngạc nhiễm vẻ thất vọng. "Khỏi rồi! Chóng thế ư! Một cái tai nạn, một sự nguy hiểm, trong có vài ba hôm đã mất hết dấu vết?" Hạnh mỉm cười nghĩ tiếp: "Thế nào chả còn cái sẹo". Và chàng hỏi người khán hộ:
+
+-- Cái sẹo có to không, ông?
+
+Người kia vạch tóc ở bên tai ra xem rồi nói:
+
+-- May ra không có sẹo. Mà nếu có cũng nhỏ và sẽ lẩn trong tóc, chả sao.
+
+Hạnh bắt tay người người khán hộ, buồn rầu ra về. Tới cổng chàng bỗng quay lại:
+
+-- Thưa ông, tôi xin cái băng.
+
+Người khán hộ rút ngăn kéo, đưa cho Hạnh một cuốn vải thưa mới, sực nức mùi ether, cái mùi huyền ảo của phòng dưỡng bệnh nơi đồn điền.
+
+-- Không, cái băng cũ cơ ạ... Đây rồi.
+
+Hạnh cúi xuống nhặt và xin một tờ giấy để gói.
+
+-- Ông vứt cái băng bẩn ấy đi, dùng làm gì. Thiếu gì băng mới. Đây tôi biếu ông.
+
+Mặt Hạnh nóng bừng và Hạnh ấp úng:
+
+-- Giữ... kỷ niệm.
+
+Người khán hộ đã quay ra hỏi một người đàn bà rách rưới vừa đến bên bàn giấy và như không lưu ý tới Hạnh nữa.
+
+-- Vậy ông cho tôi chỗ băng này?
+
+-- Vâng, xin biếu ông.
+
+Hạnh bắt tay một lần thứ hai, rồi đi thẳng. Giữa đường chàng dừng lại giở ra ngắm nghía nắm vải băng cũ còn dính ít bông. Một cảm giác buồn phảng phất trong tâm hồn chàng, một cảm giác mơ màng như giấc chiêm bao.
+
+---
+
+Thấy Hạnh vừa qua cổng trường, Quý, ông giáo lớp nhì, chạy vội ra bắt tay hỏi:
+
+-- Noel toa chơi có thú không?
+
+Hạnh chưa kịp đáp, - chàng vẫn có tính chậm chạp nhất về ngôn ngữ - Quý đã tiếp luôn:
+
+-- Moa Réveillon [^7]ở tỉnh vui quá... Mỗi người góp có hai đồng mà rượu thả cửa. Messe minuit [^8]về, rồi thức suốt sáng.
+
+Hạnh đăm đăm nhìn người hạn đồng nghiệp, vẻ mặt nghĩ ngợi:
+
+-- Toa có đạo à, thế mà moa không biết.
+
+-- Không, moa có đạo đâu!
+
+Quý vỗ vai Hạnh, cười nói tiếp:
+
+-- Toa tưởng cứ phải có đạo mới chén được Reveillon?
+
+Hạnh sợ Quý chê mình không biết gì, liền lúng túng nói chữa:
+
+-- Cố nhiên là chén được. Nhưng sao toa lại đến nhà thờ dự Messe de minuit?
+
+Quý vẫn cười:
+
+-- Làm thế linh hồn moa cùng sẽ chẳng lên Thiên đường đâu mà sợ. Nhưng nghỉ Noel toa ở luôn đây ư?
+
+Hạnh ngập ngừng:
+
+-- Không... moa... đến chơi một người bạn.
+
+Và chàng nghĩ thầm: "Thì ra mình ngã xe đạp, mình suýt chết nó vẫn chẳng biết gì hết! Giá cứ để nguyên cái băng mà đến trường..."
+
+Quý ghé tai Hạnh thì thầm:
+
+-- Con Lan lại trở về tỉnh rồi đấy, toa ạ.
+
+Hạnh giật mình, hỏi lại:
+
+-- Toa bảo gì cơ?
+
+-- Con Lan mà toa thích ấy mà!
+
+Mặt Hạnh tái đi, miệng Hạnh há ra. Quý cười hỏi:
+
+-- Toa quên Lan rồi? Lan năm ngoái chúng mình đến hát...
+
+Hạnh như vụt hoàn hồn:
+
+-- A... Moa cứ tưởng...
+
+-- Toa tưởng ai?
+
+-- Không... moa lại tưởng Lan nào kia.
+
+Mấy lần Hạnh toan thuật câu chuyện gặp gỡ của mình. Giữ chôn sự bí mật trong lòng, chàng luôn luôn thấy trí chàng rối loạn, tim chàng hồi hộp. Và chàng muốn nói tung ra cho hả. Nhưng chàng vẫn im lìm. Một là vì chàng nhút nhát bẽn lẽn, dù chỉ nghĩ đến một người đàn bà chứ đừng nói thuật chuyện đến người ta vội. Hai là vì chàng không muốn để bạn đồng nghiệp biết mình ngã xe. Xưa nay những việc riêng của chàng, dù là một việc dữ dội, có khiến được ai thương hại, hay phàn nàn hay cảm động đâu! Kể cho người ta nghe nhỡ người ta lại lạnh lùng, thản nhiên, hay vui cười nói đùa cợt thì mình còn ra sao... Chỉ thêm khó chịu, thêm bực tức mà thôi.
+
+Hạnh thoáng nhớ lại một lần cùng Hân - một bạn đồng nghiệp đã đổi đi trường tỉnh - dạo chơi vùng quê. Bỗng chàng bị một con chó đớp trộm một miếng vào bắp chân rồi cúp đuôi cắm đầu chạy biệt. Vết thương chỉ hơi rớm máu, nhưng Hạnh kinh hoảng kêu thất thanh. Khi đã trấn tĩnh, chàng ngẩng lên nhìn bạn, thấy người này thản nhiên không đổi sắc mặt và mủm mỉm cười hỏi chàng:
+
+-- Có đau không?
+
+Hạnh lãnh đạm ném ra một tiếng:
+
+-- Không.
+
+Chàng lấy khăn buộc chặt vết thương, rồi giơ tay bắt tay Hân, nói:
+
+-- Tôi phải về rửa teinture d'iode ngay mới được.
+
+Người kia vẫn mỉm cười, đáp:
+
+-- Về thì cùng về.
+
+Trên con đường phố huyện, Hân bình thản, kể những sự nguy hiểm của nọc độc chó dại. Rồi bảo Hạnh.
+
+-- Nếu không bắt được con chó mà xem gan nó thì chịu, chả còn biết lành hay điên. Nếu nó điên thì phải tiêm ngay.
+
+Hạnh, giọng lo lắng:
+
+-- Hơn hết là cứ tiêm ngay.
+
+Hạnh nghĩ ngay đến cái phiền phải xin nghỉ về tiêm ở viện Pasteur Hà Nội. Thế rồi chàng bỏ qua và vài hôm sau quên bẵng rằng mình đã bị chó cắn. Lười biếng và cẩu thả vẫn là những cố tật của Hạnh.
+
+Nhưng cái vẻ mặt lạnh lùng của người bạn đồng nghiệp thì không bao giờ Hạnh quên được: "Ai cần gì mình, mình sống hay chết thì có can dự gì đến ai!" Cái ý nghĩ bị người ta hất hủi nhóm từ ngày thơ ấu, từ trong gia đình, một ngày một ăn sâu mãi vào tâm hồn Hạnh.
+
+Một hồi trống như đánh thức Hạnh.
+
+Vào lớp. Tiếng thì thào nói chuyện trên khắp các bàn, mặc dầu Hạnh đã thét tới ba lần "silence!" [^9]. Bực mình, Hạnh trỏ liền bốn trò nhỏ ở bốn bàn đáy lớp: "Khuất! Phi! Can! Hùng! Chép một trăm lần câu: 'Tôi nói truyện trong lớp'." Hùng bé nhất lớp, và không hiểu vì lẽ gì thường bị Hạnh ghét và mắng, có khi đánh nữa. Hùng đứng dậy mếu máo:
+
+-- Thưa thầy con có làm gì đâu?
+
+Hạnh nhảy từ bục gỗ xuống, sầm sầm tiến tới đáy lớp và thét:
+
+-- Chắt! Thằng Hùng nó có nói truyện không?
+
+Chắt nổi tiếng nghịch và hỗn và bướng, đứng lên trả lời dõng dạc:
+
+-- Không ạ.
+
+Hạnh hầm hầm nhìn Chắt, hỏi:
+
+-- Không?
+
+Chắt nghiêm trang nhắc lại:
+
+-- Không ạ.
+
+-- Vậy ai nói chuyện?
+
+-- Thưa thầy anh Bằng ạ. Anh Bằng bảo Hùng: Hôm nọ thầy ngã xe đạp. Anh Đăng ra tỉnh gặp thầy đầu quấn băng chằng chịt.
+
+Hạnh mỉm cười vơ vẩn:
+
+-- À ra thế!
+
+Rồi trở về bàn thầy giáo, ngồi rút khăn hỉ mũi.
+
+Chắt vẫn đứng hỏi to:
+
+-- Thưa thầy, thay đã khỏi chưa ạ?
+
+Ba, bốn trò hỏi tiếp cũng một câu ấy.
+
+Hạnh cảm động, đáp:
+
+-- Cám ơn các anh, thầy khỏi rồi.
+
+Chàng đưa mắt nhìn Đăng mỉm cười khẽ gật. Lần đầu chàng cảm thấy chàng yêu học trò, và chàng tỏ tình yêu thành thực của chàng bằng cách xóa hết phạt.
+
+Giờ ấy là giờ học thuộc lòng, Chắt chừng không thuộc bài, nên muốn kéo dài câu chuyên "ngã xe" cho hết giờ để khỏi bị gọi đọc:
+
+-- Thưa thầy, thầy ngã ở đâu ạ?
+
+-- Ở cuối đồn điền ông Lâm.
+
+-- Thưa thầy cái dốc ấy dài lắm. Thế thầy có việc gì không?
+
+-- Tôi vỡ đầu.
+
+Hạnh nhìn quanh một vòng lớp học, để xem công hiệu của hai chữ "vỡ đầu" vừa thốt ra. Quả thực có nhiều trò nhớn nhác và rầm rì nói chuyện với nhau. Sung sướng Hạnh kể luôn:
+
+-- Tôi ngất đi. May có... ông Lâm cho khiêng đưa về đồn điền rồi mời đốc tờ chữa chạy.
+
+Một trò hỏi:
+
+-- Thưa thầy ông Lâm là ông chủ đồn điền?
+
+-- Phải. Cái đồn điền đẹp quá. Cam tốt lạ, toàn giống cam Bố Hạ, quả nào quả nấy to gần bằng cái bát ăn cơm một. Nhưng còn xanh chứ nếu chín rồi thì thế nào ông Lâm... cũng cho tôi một ít, ông hẹn...
+
+Hạnh bỗng ngừng lại, vì cho rằng không nên đem những câu chuyện quá thân mật kể với học trò, nhất vì chàng nhận thấy chỗ nói dối của mình: sự thực thì không phải ông Lâm mà chính bà chủ đồn điền xinh đẹp đã hẹn cho chàng cam. Chàng vội lảng:
+
+-- Nhưng làm việc thôi.
+
+Chàng nhìn đồng hồ nói tiếp:
+
+-- Chuyện nhảm phí mất gần mười phút!
+
+Rồi mở sổ ra định để gọi tên học trò. Nhưng như vui thích điều gì, chàng tươi cười ngửng lên đưa ngón tay trỏ quanh một vòng các hàng ghế, Ngón tay dừng lại:
+
+-- Anh... Chắt, đọc bài.
+
+Chắt đứng lên nói khẽ: "Chết rồi!" khiến mấy trò ngồi bên khúc khích cười. Nhưng hình như thầy giáo không biết gì hết, không biết cả rằng Chắt nhìn sách mà đọc chứ không phải đọc thuộc lòng.
+
+Chàng trở nên dễ tính quá, cho sáu điểm.
+
+Và các họ trò đọc sau dù ngấp ngứ cũng đều được điểm tốt.
+
+---
+
+Sau buổi học chiều thứ Sáu. Hạnh hớn hở về nhà, một căn nhà gỗ năm gian lợp lá ở phố huyện. Ngày mai chàng sẽ được nghỉ "tết tây" và ngày kia sẽ là ngày Chủ nhật.
+
+"Hai hôm liền ở nhà..." Hạnh không nghĩ dứt câu, vì chính chàng cũng không biết ở nhà làm gì.
+
+Hạnh băn khoăn tự hỏi. "Ừ, ở nhà để làm gì? Thà cứ đi dạy học còn dễ chịu hơn". Bất giác chàng tưởng đến Hân với cái thú ngủ suốt ngày đêm. "Đối với anh chàng ấy nghĩ chỉ có một mục đích là ngủ". Và Hạnh cũng muốn theo gương.
+
+Liền mấy đêm nay, mỗi lần kéo chăn lên đến cằm, Hạnh không sao không nhớ cái phòng ấm áp và hai người đàn bà xinh tươi ở nơi đồn điền. Rồi chàng nằm mơ mộng liên miên cho tới khuya mới ngủ được, có khi trong giấc chiêm bao, hai người đàn bà vẫn không rời chàng ra, đến tha thướt quanh quẩn bên mình chàng.
+
+Tự nhiên, Hạnh mỉm cười sung sướng: "Ăn xong, ta đi ngủ, rồi mai nằm chùm chăn suốt ngày đọc sách".
+
+Đọc sách? Mấy quyển tiểu thuyết chàng xem cả rồi. Quyển Roman d'un jeune homme pauvre [^10], chàng lại đã xem đến hai lượt: chàng hầu như thuộc lòng các đoạn trong truyện, hơn thế, chàng tưởng như mình đã sống với các nhân vật thân yêu. Và nay không hiểu sao, chàng thấy cô con gái trong lâu đài cổ giống hệt người đàn bà nhỏ nhắn xinh đẹp ở đồn điền, giống cả dung nhan lẫn tính tình.
+
+---
+
+Ăn cơm xong, Hạnh sắp sửa lên giường nằm xem lại đoạn "thiếu niên và thiếu nữ bị nhốt nhất" trong tiểu thuyết "Roman d'un jeune homme pauvre". Bỗng có tiếng gọi cổng. Hạnh nhận được tiếng Quý và chau mày nghĩ thầm: "Nó lại đến rủ mình đi đánh tổ tôm! Nhất định từ chối. Nhất định!"
+
+Tiếng mở then. Rồi một tia ánh sáng đèn điện bấm trong sân tối.
+
+-- Bonsoir, Hạnh!
+
+-- Bonsoir, Quý.
+
+-- Ngủ rồi à?
+
+-- Sắp.
+
+Quý bước vào trong nhà, giơ tay bắt tay Hạnh.
+
+-- Ai lại ngủ sớm thế bao giờ!... À! Tôi đến rủ anh mai ra tỉnh sớm.
+
+Hạnh ngẫm nghĩ: "Ra tỉnh sớm! Ra tỉnh làm gì mới được chứ?" Và tò mò chàng nhìn cái áo đi mưa của Quý:
+
+-- Mưa đấy à?
+
+-- Không, tôi mặc áo mưa đi cho ấm, vì ở ngoài đường rét lắm.
+
+Hạnh mỉm cười:
+
+-- Vậy rét thế ra tỉnh làm gì?
+
+-- Mai tết tây, chúng ta đến chúc tết ông thanh tra học chính.
+
+Quý láu lỉnh tiếp luôn:
+
+-- Lấy cớ chúc tết hắn, để ra ra tỉnh chơi ấy mà. Hôm nọ tôi đã trót nhận lời An mời đi hát.
+
+Cái tên Lan chợt đến trong tâm tư Hạnh, và gợi luôn cái hình ảnh cô Lan em ông chủ đồn điền.
+
+-- Được, đi thì đi. Vậy mấy giờ bắt đầu?
+
+-- Năm giờ ta đi cho sớm. Mình đạp thong thả thì cũng chỉ bảy giờ đã tới tỉnh rồi. Vào quãng tám giờ ta cùng bọn họ đi chúc tết ông thanh tra.
+
+-- Đi xe đạp?
+
+-- Ừ, chả đi xe đạp còn đi gì? Đi xe tay chậm như rùa thì bao giờ mới đến.
+
+Hạnh mỉm cười:
+
+-- Nào tôi có sợ đi xe đạp đâu mà anh phải thuyết lý.
+
+Sự thực, Hạnh đương mơ màng và cảm động ngắm trong trí nhờ suốt con đường từ huyện ra tỉnh, không bỏ sót một cái quán, một cây gạo, một đồi chè, một quãng lên dốc xuống dốc, nhất là cái dốc "đồn điền ông Lâm".
+
+Và khi tiễn Quý ra cổng. Hạnh vui mừng bắt tay nói:
+
+-- Sáng mai, năm giờ.
+
+Đêm hôm ấy Hạnh sung sướng quá, không đọc được một trang tiểu thuyết nào, tuy chàng để đèn gần đầu giường và tuy chàng thức quá mười một giờ khuya.
+
+Chàng dự định cả một chương trình gặp gỡ. Chàng bày mưu lập mẹo để đánh lừa Quý. Chàng nghĩ thầm: "May mà mình chưa nói cho hắn biết câu chuyện... Vậy bắt đầu ta sẽ nói khích Quý, để hắn cùng ta đạp rất mau, cho mệt... Đến quán nước dốc dồn điền ông Lâm phải nghỉ lại... Rồi ta cố khiến được hắn dắt xe đạp đi bộ qua đồn điền... Hễ gặp bà Lâm hay Lan thì thế nào họ chả mời vào chơi. Nếu không...
+
+Hạnh chẳng tìm ra được kế gì để nếu không gặp hai người đàn bà, cũng có thể vào chơi đồn điền được. Mãi sau chàng tính liều: "Thì sao ta không cứ vào chơi ông Lâm? Ừ, vào chơi là phải chứ. Mình mang ơn người ta, đi qua vào cảm ơn một câu". Bây giờ thì chàng nhận thấy rằng bổn phận chàng là phải vào hỏi thăm vợ chồng ông chủ đồn điền. Nhưng lòng nhút nhát vẫn như thì thầm bảo chàng: "Khó khăn lắm! Vào thế cũng bất tiện, nhất lại có Quý cùng đi". Chàng bỗng có dã tâm đi trước đi một mình và để mấy chữ lại nói chờ Quý ở dốc đồn điền ông Lâm.
+
+Hạnh nhận thấy ngay rằng làm như thế không ổn thỏa mà lại bất nhã nữa. "Vả thiếu gì cách, cần gì phải dối trá, lừa lọc! Ừ, thiếu gì cách!" Nhưng Hạnh chưa nghĩ ra cách gì thì đã ngủ lúc nào không biết.
+
+---
+
+Hạnh giật mình thức giấc. Ngọn đèn dầu hỏa vẫn cháy ở đầu giường. Hoảng hốt chàng giơ tay toan vặn tắt. Bỗng nhớ tới giờ hẹn ra tỉnh sớm với Quý, chàng vội mở đồng hồ xem. Bốn giờ đúng, Hạnh mừng thầm tự nhủ: "Tí nữa mình ngủ lại thì nhỡ to!" Liền dậy gọi thằng nhỏ lấy nước rửa mặt và đun nước sôi pha chè uống. Rồi mặc quăn áo xong, chàng băn khoăn ngồi chờ Quý, chốc chốc lại xem giờ.
+
+Năm giờ kém năm có tiếng chuông xe đạp của Quý ở cổng. Hạnh dắt xe ra đi liền.
+
+Hai người yên lặng cùng đạp đều đều. Hai chiếc xe song song đi ngang hàng nhau. Lửa đèn diện ở xe Quý lập lòe vạch một vệt vàng trên con đường nhựa đen.
+
+Mãi nửa giờ sau trời mới lờ mờ sáng. Quý nhìn Hạnh mỉm cười nói:
+
+-- Rét nhỉ!
+
+Hạnh mỉm cười đáp lại:
+
+-- Rét thực! Nhưng được cái khô ráo... Sao không mặc tây cho ấm và gọn?
+
+-- Bộ đồ áo tây của tôi tàng quá... chào tết ăn mặc tồi, e bất nhã.
+
+Sư thực, Quý chỉ sợ ngượng với bọn ả đào.
+
+Hạnh lại than phiền, giọng run run:
+
+-- Rét quá!
+
+-- Giá có bún riêu nóng làm một bát thì vừa ấm vừa đỡ đói.
+
+-- Sáng anh ăn gì chưa?
+
+-- Tôi dậy muộn nên vội vàng đi ngay, sợ anh chờ. Anh hẳn ăn sáng (...)?
+
+-- Chưa, tôi cũng chưa ăn sáng.
+
+-- Vậy ăn bún riêu nóng nhé?
+
+-- Để đến hàng dốc đồn điền ông Lâm.
+
+-- Anh biết hàng ấy có bún riêu?
+
+Hạnh trả lời liều:
+
+-- Chắc thế nào chả có.
+
+Phong cảnh hai bên đường dần dần rõ. Những lũy tre như bập bềnh nổi trên làn sương làm bay trắng đục. Hạnh cảm thấy buồn bâng khuâng, và lạnh từ trong lòng thấm ra:
+
+-- Đi mau cho ấm.
+
+Hạnh nằm rạp xuống tay lái để gió lạnh khỏi tạt vào mặt và nói như một mình:
+
+-- Gần đến đồn điền ông Lâm rồi đấy.
+
+Bây giờ cái đồn điền như thu lấy cả ý nghĩa của Hạnh. Mỗi khi một lũy tre sát vệ đường hiện ra ở đằng xa, chàng lại nghển cổ nhìn kỹ, rồi lại tự nhủ thầm: "Không phải!"
+
+-- Có lẽ sớm quá.
+
+Hạnh định nói có lẽ sớm quá không tiện vào chơi trong đồn điền. Quý không hiểu, đáp:
+
+-- Chưa. Chúng ta sẽ nghỉ ở hàng nước dốc dồn điền.
+
+-- Cũng chả sớm đâu. Hơn sáu giờ rồi đấy. Anh đã mệt chưa?
+
+-- Nghỉ ăn bún riêu nhé?
+
+-- Ừ! Ăn bún riêu!
+
+Hạnh nhớ lại buổi ăn sáng ở đồn điền với hai người đàn bà. "Cũng vào giờ này... Dăm bông ngon quá". Chợt nghĩ ra một điều, chàng kêu:
+
+-- Chết chửa!
+
+Quý hỏi:
+
+-- Cái gì thế?
+
+-- Không.
+
+Hạnh vừa nhận thấy cái hớ to của mình hôm từ biệt hai người đàn bà: lúc xin đi, chàng nói ra tỉnh có việc cần, thế mà chàng lại nghiễm nhiên ngược lên phía huyện. "Không biết bà chủ đồn điền nghĩ sao? Mình ngốc đến thế là cùng!..."
+
+Và Hạnh áy náy, lo buồn.
+
+---
+
+Một lát sau, đến dốc đồn điền. Tim Hạnh hồi hộp đập mau, người nóng lên, chân đạp nhanh nhẹn.
+
+-- Bóp "frein" chẳng trợt bánh ngã đấy.
+
+Quý đáp lại hàng một tiếng cười. Hạnh nói luôn:
+
+-- Chính tôi ngã xe ở cái dốc này
+
+-- Dốc này thì mùi mằn gì!
+
+Hạnh muốn thuật lại buổi ngã xe, nhưng vẫn bẽn lẽn nhút nhát không dám.
+
+Đến hàng nước, hai người xuống xe. Hạnh trỏ phía trước mặt bảo Quý:
+
+-- Kìa, đồn điền ông Lâm đấy!
+
+Quý nhìn theo hỏi:
+
+-- Anh quen ông ta?
+
+Hạnh đỏ mặt đáp:
+
+-- Không,.. cùng hơi quen thôi.
+
+Rồi đánh trống lảng hỏi bà hàng:
+
+-- Có bún riêu không, bà?
+
+Bà hàng niềm nở đáp:
+
+-- Không ạ. Thưa hai thay sớm thế này ai ăn bún riêu? Có xôi nóng mời hay thầy xơi.
+
+-- Xôi nóng cũng được.
+
+Mỗi người ăn luôn hai nắm xôi đậu đen, uống một bát nước chè tươi nóng, rồi đứng dậy trả tiền ra đi. Hạnh bàn:
+
+-- Ta đi bộ một lát cho dãn cẳng.
+
+-- Cũng được.
+
+Hai người dắt xe đạp đi về phía đồn điền. Hạnh mừng rằng bà hàng không nhận được mặt mình: "Có lẽ lại không có cái băng".
+
+Bây giờ, chàng nghe rõ tim đập thình thịch. Tay chàng bần bật run. Qua lũy tre, chàng tò mò nhìn vào trong vườn, bảo Quý:
+
+-- Kìa anh trông đỏ ối như cam... Toàn cam Bố Hạ.
+
+Quý nhìn theo nói:
+
+-- Ồ! Đẹp quá... giá ta vào mua mấy quả.
+
+-- Chưa ăn được vì chưa chín... hãy còn chua.
+
+-- Sao anh biết?
+
+-- Bà Lâm...
+
+Hạnh toan đáp: "Bà Lâm bảo thế". Nhưng chàng kìm ngay lại rồi lặng thinh dắt xe đi.
+
+Cổng đồn điền đóng im ỉm. Cả một khu nhà và vườn như còn yên giấc ngủ say, bao bọc trong làn sương mai từng chỗ loang loáng ánh mặt trời mới ló.
+
+Hạnh nghĩ thầm: "Lúc trở về sẽ hay!"
+
+---
+
+Vừa đến đầu tỉnh, hai người đã nghe thấy tiếng pháo nổ ran và trông thấy làn khói trắng bốc lên quyến trong lá long não trên một ngọn đồi cao. Quỷ trỏ bảo Hạnh:
+
+-- Chừng các quan Annam đến chúc tết quan Sứ.
+
+Hạnh đương mải nhớ lại lần đi chúc tết năm ngoái, nên không để ý đến lời bạn. Chàng hỏi:
+
+-- Không biết có chóng xong không nhỉ!
+
+-- Anh bảo cái gì chóng xong?
+
+-- Vào ông Inspecteur[^11] ấy mà.
+
+-- Chóng chậm thì cần quái gì!
+
+-- Tôi muốn về ngay.
+
+Quý kêu:
+
+-- Về ngay?
+
+Hạnh rụt rè đáp:
+
+-- Tôi đương xem dở quyển tiểu thuyết, đương gặp đoạn hay.
+
+Quý cười:
+
+-- Chẳng tiểu nào bằng tiểu thuyết cô đầu. Đọc mai vẫn không chán.
+
+Chàng cười càng to, rồi hỏi Hạnh:
+
+-- Anh đã xem tiểu thuyết Ce Cochon... cái gì quên đi mất... của Guy de Maupassant ấy mà?
+
+Hạnh chau mày, và cho là bạn riễu mình. Nhưng Quý thẳng thắn nói tiếp:
+
+-- Trong đó có một anh chàng đọc truyện một cách thú vị, và vì đọc truyện như thế mà cứu được một người bạn khỏi bị kiện.
+
+Quý lại cười, vui thích:
+
+-- Anh có muốn đọc truyện thú vị ở nhà cô đầu thì xin mời anh tối nay đi chơi với tôi.
+
+Hạnh chẳng hiểu Quý định nói gì, nhưng muốn tỏ rằng mình không quá ngây thơ đối với truyện đời chàng trả lời liền:
+
+-- Thôi, tiểu thuyết ấy xin mời anh đọc một mình.
+
+Một chiếc ô-tô vượt hai người Hạnh thoáng nhìn thấy cái rọc thuốc lá dài của ông thầy thuốc.
+
+Chàng vội quay bảo Quỷ:
+
+-- Xe ông Lâm đấy.
+
+Quý ngơ ngác hỏi:
+
+-- Ông Lâm nào?
+
+-- Ông Lâm chủ đồn điền ấy mà.
+
+-- À! Cái ông có vườn cam, phải không?
+
+-- Chính.
+
+Từ đó, Hạnh càng lơ đãng trong câu chuyện. Chàng nghĩ thầm: "Chắc tối hôm qua họ tiệc tùng với nhau ở đồn điền!... Thế nào chả có hai người đàn bà!" Tự nhiên, Hạnh ghen với ông thầy thuốc, ghen cả vói ông chủ đồn điền.
+
+Va chàng hậm hực hỏi Quý:
+
+-- Anh có quen ông lão đốc tờ không? 
+
+Quý thản nhiên đáp:
+
+-- Quen thì không quen. Biết vậy thôi.
+
+-- Anh trông lão ta có ghét không?
+
+Quý ngẫm nghĩ:
+
+-- Tôi cũng không nhớ bộ dạng lão ta ra sao nữa.
+
+-- Lão ta ngậm cái Porte-cigaretle [^12]dài lê thê ấy mà.
+
+-- Thế à?
+
+-- Trông dơ dáng lạ lùng.
+
+Quý nói vơ vẩn:
+
+-- Được cái mình cùng không cần đến ông ta chữa bệnh.
+
+-- Biết đâu đấy... Chính tôi đã bị ông ta chữa rồi.
+
+-- Thế à? Bao giờ?
+
+-- Ừ... ừ... độ nọ... Chúng ta đến Hân đã nhé?
+
+-- Phải đấy.
+
+Hai người liền rẽ qua chợ, đạp thẳng lên phố Vọng Cung.
+
+---
+
+Được tin Hân cho biết ông thanh tra Học chính về Hà Nội, Hạnh không giấu nỗi vui mừng. Nhưng chàng cùng vờ thản nhiên:
+
+-- Chán quá nhỉ! Lóp ngóp từ huyện lên đến đây, lại lóp ngóp về ngay.
+
+Và chàng bắt tay hai hạn đồng nghiệp nhảy xe đạp đi thắng, nói ở nhà có việc cần.
+
+Tới chợ, Hạnh qua một hiệu phở. Mùi thơm nước ninh thịt bò chợt nhắc chàng nhớ ra rằng chàng đói. Chàng liền vào hàng gọi làm một bát phở tái năm xu.
+
+Ăn xong, Hạnh thấy ấm áp dễ chịu và toan đứng dậy trả tiền. Nhưng chàng nghĩ lẩn thẩn: "Trả năm xu thôi? Họ cười chết!" Vì thế, chàng lại ngần ngừ ngồi xuống.
+
+Vợ ngưới chủ hiệu đến hỏi:
+
+-- Ông dùng gì nữa ạ?
+
+-- À, làm cho tôi một bát nữa.
+
+-- Thưa ông, lại một bát năm?
+
+-- Phải, một bát năm.
+
+Hạnh băn khoăn khó chịu gần như tự cáu kỉnh với mình. "Rõ khỉ quá! Vô lý quá!" Nhưng chính chàng cũng không biết vô lý về điều gì. Hình như có một sự liên tưởng đưa tâm tư chàng tới hai người đàn bà ở đồn điền. Và tự nhiên chàng buồn. Cái buồn mênh mang vô duyên cớ.
+
+Ăn xong bát phở thứ hai và mấy quả quít tráng miệng. Hạnh trả tiền đứng dậy đi.
+
+Tới chỗ ngã ba đầu tỉnh, chàng bỗng lo lắng nghĩ thầm: "Hay thôi quách! Quay về nhà Hân ngồi chầu rìa bàn tổ tôm..."
+
+Nhưng chân chàng vẫn đạp đều đều, như không chịu vâng theo những ý định không quả quyết.
+
+Mặt trời vừa ra khỏi một đám mây và chiếu ánh dịu xuống một cảnh hùng vĩ, Hạnh có cảm tưởng một bức tranh sắc xám vừa nhúng vào trong nước thuốc nhuộm màu vàng tươi, và ở phía trước mặt, dãy núi đột ngột chọc mây vụt hạ thấp hẳn xuống.
+
+Những tia nắng ấm như lọt vào trong lòng trống trải, lạnh lẽo của chàng, làm cho chàng mất hết những cảm giác ban nãy. Chàng thấy chàng như đã biến thành một người khác hẳn, một người hoạt bát. Tuy không nói một lời, - vì nói với ai? - chàng vẫn cảm thấy giòng tư tưởng dồi dào đương nói huyên thiên.
+
+Rồi cái vui bồng bột ít có ấy thốt ra lời ca. Hạnh hát đi hát lại mãi câu: "On dit qu'au delà des mers là-bas sous le ciel clair". [^13]Vì chàng thuộc mỗi câu ấy, nhưng sau chàng cũng đổi sang câu khác, một câu chàng tự đặt ra và hát theo đủ các điệu, đủ các bậc cao thấp: "Oh! Que je suis heureux! Oh! Que je suis heureux!" [^14]
+
+Một bọn người nhà quê vừa đàn ông vừa đàn bà con gái ở chợ tỉnh trở về, quay lại nhìn Hạnh, mỉm cười. Hạnh bạo dạn hỏi:
+
+-- Hát có hay không, các cô?
+
+Vì đi xe đạp thì dễ bạo dạn lắm: Mình vượt qua, dù ở đằng sau người ta có chế riễu, mình cũng không nghe thấy gì. Tuy thế mà khi tiếng cười của bọn kia phá lên đuổi theo Hạnh cũng chột dạ và im bặt. Nhưng Hạnh cảm thấy lòng chàng vẫn thì thầm hát: "Oh! Que je suis heureux!"
+
+Xưa nay ít khi Hạnh nghĩ đến sung sướng. Chàng sống, chàng làm các việc phải làm. Và đời chàng cứ thế mà đi như thế mãi. Một đôi khi ăn ngon miệng, ngủ ngon giấc, chàng cũng có những cảm giác khoan khoái. Nhưng thực chưa bao giờ chàng lại nhủ thầm: "Mình sung sướng".
+
+Tới đồi thông, - vì trên ngọn đồi trơ trọi có một cây thông cỗi - Hạnh đạp chậm lại. Chàng biết đã gần đồn điền. Chàng lo lắng, sợ hãi nữa. Lượt đi, chàng phàn nàn ngầm rằng có Quý nên không tiện vào chơi đồn điền. Lượt về này, chàng lại phàn nàn điều trái ngược: "Mình rõ vội vàng vô ích! Sao không chờ Quý để cùng về... chứ vào một mình thì trơ trẽn quá".
+
+Hạnh mơ màng tưởng tượng ra cảnh đón tiếp:
+
+Chàng thấy chàng đến cổng đồn điền, xuống xe không chút ngần ngừ, do dự. Rồi mạnh bạo kéo chuông. Nhàn mở cổng reo! "À! Ông giáo!" Tức thì bà chủ đồn điền đương đứng ngắm vườn cam vội đi ra, sau lưng theo cô em chồng.
+
+-- Mời ông vào chơi.
+
+Hạnh cất mũ chào, lí nhí:
+
+-- Bà ạ!... Cô ạ!...
+
+-- Thưa ông ra chơi tỉnh?
+
+Hạnh nói dối một câu nhã nhặn và lịch thiệp mà chàng đã nghĩ sẵn từ trước:
+
+-- Không ạ. Được ngày nghỉ, tôi ra thăm ông bà và cô, để cảm ơn ông bà và cô một lần nữa.
+
+Bà Lâm cười:
+
+-- Dễ thường ông đến chúc tết chúng tôi!
+
+Hạnh và Lan cùng cười theo, vui vẻ:
+
+-- Thưa bà, ông có ở nhà không ạ?
+
+Đó là câu nói dối thứ hai của Hạnh, vì Hạnh thừa biết rằng Lâm ra tỉnh chưa về.
+
+-- Thưa ông, nhà tôi đi vắng, nhưng không hề gì, mời ông vào chơi, nhà tôi cũng sắp về đấy ạ.
+
+Ba người qua phòng ăn vào phòng khách. Bao kỷ niệm! Bao cảm động! Mỗi vật hiện ra một nụ cười nở trên môi Hạnh. Cái bàn ăn và bốn cái ghế gỗ lát, cái tủ dĩa bát với sau kính tủ từng hàng chai rượu nho trắng, đỏ. Trong phòng khách, hai bức ảnh vẫn thân mật nhìn Hạnh.
+
+Bà chủ hỏi Hạnh:
+
+-- Thưa ông, ông có muốn ngắm lại cái phòng ngủ của ông không?
+
+Hạnh nghĩ thầm: "Âu yếm quá!" và lém lỉnh đáp:
+
+-- Thưa bà, cố nhiên là có. Nơi đất thánh của tôi đấy ạ. Ước gì mỗi năm, bà cho phép tôi được một lần đến viếng.
+
+Bà chủ cười:
+
+-- Xin vâng. Ồ! Thế thì hân hạnh cho tôi quá.
+
+Ở phòng ấy, không khí ấm áp. Hạnh nhìn vào lò sưởi. Lửa còn chảy. Chàng cau mày hỏi:
+
+-- Thưa bà, đêm hôm qua ông đốc-tờ ngủ ở đây?
+
+-- Không ạ. Tôi bảo đốt lò sưởi để đón khách đến chơi vì hôm nay là ngày nghỉ mà lại rét quá.
+
+Câu trả lời của bà chủ, Hạnh cho là vô lý, nhưng âu yếm biết bao! Và chàng mỉm cười đáp lại:
+
+-- Thưa bà, người khách ấy là tôi đây.
+
+Lan trả lời thay bà Lâm:
+
+-- Vâng, chính thế.
+
+Rồi hỏi:
+
+-- Chắc ông chưa xơi sáng?
+
+Hạnh nghĩ đến hai bát phở tái vừa ăn. Nhưng chàng đáp:
+
+-- Cảm ơn cô, sáng nay tôi đã dùng một cốc sữa cà phê lớn và...
+
+Chàng định nói "và một cái bánh tây năm xu". Nhưng ngừng ngay được vì chợt nhớ ra rằng ở huyện không có bánh mì.
+
+Bỗng xe đạp Hạnh nẩy bật lên: Bánh xe vừa vấp phải một hòn đá. Và Hạnh sực tỉnh giấc mộng. Phía tay trái chàng, lũy tre đồn điền. Chàng nhớn nhác dòm qua các khe cành thưa: Cam, quít đỏ ối một khu vườn. "Ồ! Sao chóng đến nơi thế này?... Cổng đồn điền kia rồi!"
+
+Chẳng hiểu sao, Hạnh xuống xe, thủng thỉnh bước một và nhìn vào trong vườn...
+
+Bỗng chàng khinh ngạc, đứng sững lại. Ở cổng đồn điền, bà Lâm đương ngồi chọn mua củ cải: bó củ cải trắng nuột trong bàn tay trắng hồng, Và Hạnh thì thầm kêu: "Trời ơi!"
+
+Giữa lúc ấy, bà chủ đồn điền ngửng mặt lên, Hạnh luống cuống cất mũ chào. Bà kia hơi nhổm lên và lạnh lùng ngả đầu đáp lễ, rồi lại cúi xuống thúng củ cải.
+
+Hạnh hấp tấp dắt xe bước mau.
+
+---
+
+-- Ừ! Có thế chứ!
+
+Đó là ý nghĩa đầu tiên của Hạnh, sau một hồi lâu im lặng. Và Hạnh nghĩ tiếp:
+
+-- Ừ! Có lý nào!... Tất nhiên phải thế!
+
+Rồi Hạnh mỉm cười vui vẻ, làm trí nhẹ bổng như vừa cất được một khối phiền muộn. Phiền muộn không phải cội rễ ở ngờ vực, ở chỗ chưa rõ mình có được người ta yêu hay không. Nhưng phiền muộn vì tự dưng mang một tình yêu trong lòng, một tình yêu làm cho mình vừa sung sướng vừa khổ sở, nhất là làm cho mình băn khoăn, lúc nào cũng phải tưởng đến nó, nhớ đến nó, thầm nhắc nhỏm đến nó, loay hoay cảm động vì nó mãi mãi, suốt đời...
+
+Bây giờ thì hết! Bây giờ thì thoát. Vì đã biết chắc rằng người ta không yêu mình. Rõ ràng lắm! Đối với mình, người ta chỉ là một khách qua đường như trăm nghìn khách qua đường khác. Bất giác, những cảnh náo nhiệt, tưng bừng ở Hà Thành vẽ ra rất mau trong tưởng tượng dễ dàng của Hạnh. Những thiếu nữ tươi đẹp ấy, những sắc màu rực rỡ ấy, những tiếng cười trong sáng ấy có bao giờ đã cảm động được Hạnh? Hạnh không hề ham muốn họ, vì thấy họ xa mình quá, thấy họ như muốn sống một xã hội cách biệt hẳn cái xã hội mình sống.
+
+Hai người đàn bà kia cũng chỉ là hai người trong xã hội xa lạ ấy. Còn bận lòng đến họ làm gì?
+
+Hạnh sung sướng vì cho rằng đã tìm được chân lý của sự sống. Và chàng biểu lộ vui sướng của chàng ra: chàng cắm đầu ghì sức đạp thật mau, vừa đạp vừa nghêu ngao hát lại mấy câu ban nãy: "Oh! Que je suis heureux!"
+
+Nhưng cái vui sung sướng bồng bột ầm ỹ chỉ lâu trong mười phút. Buồn - một thứ buồn vô căn cứ - đã vụt hiện ra, rồi dần dần lan rộng, dần dần tăng sức mạnh để chiếm đoạt lấy tâm hồn Hạnh. Hạnh không buồn vì bà chủ đồn điền. Cách đối đãi lạnh lùng của người đàn bà ấy có chi lạ lùng và đáng buồn! Nó chỉ như trăm nghìn lần người ta đã đối đãi lạnh lùng với Hạnh, lạnh lùng và có khi còn tàn tệ nữa. Hạnh như một cơn gió ủ dột từ ngọn núi âm u kia thổi tới, đã lọt vào trong lòng chàng. Hay đó là âm hưởng của quãng đời quá khứ vừa chợt vang lên trong một tâm hồn yên lặng?
+
+---
+
+Sư thực, cái cử chỉ của người đàn bà vừa nhắc Hạnh nhớ tôi một câu chuyện thời còn nhỏ mà chàng như đã quên hẳn từ lâu. Câu chuyện xưa và câu chuyện nay cũng chẳng giống nhau lắm, nhưng Hạnh có cùng một cảm giác buồn thoáng qua, cùng một cảm tưởng hồn nhiên lãnh đạm.
+
+Thời ấy, Hạnh theo học năm thứ hai. Trong lớp chàng không thân với một ai, mà cũng chẳng cần được ai thân yêu mình. Ngày hai buổi đến trường, đứng lủi thủi một góc sân, ngồi lủi thủi một góc bàn, chẳng chơi với ai, chẳng nói chuyện với ai.
+
+Nhưng một hôm không hiểu sao, một người bạn học lại gây sự với Hạnh, rồi đấm đá Hạnh túi bụi Hạnh tối tăm cả mặt, giơ cặp lên vừa lùi vừa chống đỡ. Bỗng một người bạn học khác nhảy xổ vào cứu Hạnh, vì thấy Hạnh hiền lành yếu đuối.
+
+Thế là Hạnh đem lòng kính phục và yêu mến Thuận, tên người bênh vực Hạnh. Lần đầu Hạnh yêu, và tình yêu bồng bột, nồng nàn ngay, tuy chỉ là một thứ tình yêu thầm vụng giấu diếm: Hạnh nhút nhát không dám biểu lộ tâm sự mình với ai bao giờ. Có khi Hạnh ngồi lặng hồi lâu, cảm động ngắm bạn, và trở nên lơ đãng đến nỗi không nghe thấy ông giáo gọi đọc bài.
+
+Hạnh không bỏ một dịp nào để tỏ với Thuận - tỏ một cách kín đáo - cái tình yêu lặng lẽ của mình. Chàng cố biếu Thuận những thứ mà Thuận hơi lộ vẻ ưng thích, vì Thuận là con nhà giàu sang, không bao giờ thèm muốn ao ước tha thiết một cái gì. Có lần Hạnh ăn cắp tiền nhà để mua những thứ rất quý đem cho Thuận. Và Hạnh sung sướng mỗi khi không bị Thuận từ chối.
+
+Nhưng chẳng bao lâu, Thuận xin vào trường trung học Albert Sarraut. Hạnh nhớ bạn khóc luôn mấy đêm. Và suốt một tháng đầu, buổi nào Hạnh cũng đi học thực sớm, đến lảng vảng trước cửa trường Albert Sarraut để mong được gặp mặt bạn.
+
+Một hôm trong lúc Hạnh băn khoăn chờ đợi thì Thuận đi xe đạp tới. Hạnh reo lên: "A! Anh Thuận!" Thuận quay nhìn, mắt đăm đăm nghĩ ngợi, rồi đưa tay ra yên lặng bắt tay Hạnh.
+
+Đó là lần hội diện cuối cùng của hai người. Ngày nay Hạnh không biết Thuận ở đâu, Thuận làm gì, Thuận còn sống hay đã chết.
+
+Nhớ lời Thuận, Hạnh cảm thấy buồn êm ái tràn ngập tâm hồn.
+
+Nhưng trong cái buồn mênh mang ấy, hình ảnh người đàn bà vẫn thấp thoáng hiện ra như bóng con chim én thấp thoáng bay vụt qua lại cửa sổ.
+
+---
+
+Về đến nhà, Hạnh lấy nê mệt nhọc, đi ngủ ngay.
+
+Nhá nhem tối. Nhỏ lên đánh thức chàng dậy, giữa một giấc chiêm bao. Hạnh mơ nhận được thư xin lỗi của bà chủ đồn điền. Lời lẽ trong thư rất thành thực, ân cần, tuy trang nghiêm và chỉ vắn tắt có mấy giòng. Hạnh đọc đi đọc lại ba, bốn lượt và đã thuộc lòng khi tỉnh giấc.
+
+Nhỏ thấy chủ tung chăn lên và ngơ ngác như tìm vật gì chung quanh mình liền hỏi:
+
+-- Thưa cậu mất cái gì ạ?
+
+-- Không.
+
+Hạnh chợt nhớ ra rằng mình chiêm hao, và bức thư kia chàng chỉ nhận được trong giấc mộng. Chàng cau có nghĩ thầm: "Vô lý! Việc quái gì người ta phải xin lỗi mình!"
+
+Những bức thư trong mộng cũng an ủi Hạnh được đôi chút. Nó đem đến cho chàng những ý tưởng mà lúc tỉnh chàng không có, không dám có: là người đàn bà có tính lơ đãng và lúc chưa kịp nhận ra được chàng thì chàng đã đi xa rồi.
+
+Hạnh cho lý ấy đúng lắm, hợp khoa học lắm... Chính chàng nhiều khi giữa đường gặp người quen mà mãi mấy giây sau mới biết.
+
+Chàng mỉm cưới: "Dẫu sao thì đó cũng không phải là một việc quan trọng đáng để mình chú ý".
+
+Và chàng đi ăn cơm.
+
+Hôm sau, Chủ nhật một ngày mưa phùn. Hạnh khoác áo ngồi uống nước. Đã hơn tháng nay, chàng bắt chước Quý sáng dạy uống chè Tàu, tuy chàng chẳng thấy chè Tàu ngon.
+
+Một cảm giác ấm vỗ về Hạnh.
+
+Và Hạnh rung dùi thì thầm ngâm Kiều như một ông đồ già.
+
+Ngang mái tranh, nước mưa đọng giọt, một hàng lấp lánh như những ngôi sao. Đều đều sao theo nhau rụng. Và đều đều sao theo nhau mọc. Thong thả, rời rạc lười biếng như đời! Hạnh nghĩ thế nhưng thấy cái hình cảnh trừu tượng của mình không đúng và mỉm cười. Mấy hôm nay Hạnh sinh ra mơ màng và hay so sánh những hình, những sắc, những ý với nhau. Lúc này chàng lại loay hoay làm thơ nữa. Nhưng không thấy trong óc nảy ra một ý nghĩ rõ rệt, chàng vội nghĩ thầm: "Linh hồn mình khô khan quá, làm thơ sao được! Có lẽ viết tiểu thuyết cỏn hơn". Chàng tưởng ngay đến chép đời mình thành truyện như Dickens trong truyện David Copperfield.
+
+Cái mộng đẹp ấy đưa tâm trí Hạnh ôn lại đời mình từ thời bốn, năm tuổi cho tới ngày nay lãnh đạm ôn lại bằng óc nhà nghệ thuật tìm tòi để viết, chứ không phải bằng cảm giác một người đã sống. Hạnh thấy lộn xộn quãng đời nọ với quãng đời kia, bề bộn các cảnh dùng làm khung cho tập chuyện. Một điều lạ cho Hạnh nhất, là cảnh nào trí Hạnh cố gợi ra cũng thuộc về mùa rét: trời mưa phùn, u ám, gió bấc lạnh hiu hiu. "Có lẽ tại bây giờ đương mùa đông, nên mình xây dựng dĩ vãng bằng hiện tại?"
+
+Bất giác Hạnh lại nhìn ra sân, cái sân lát gạch Bát tràng. Sau bức tường hoa thấp, mấy bông hồng quế rung rinh đầu cành gầy, mảnh. Hai bên hệ cày hương, hai gốc cau cân đối, những tàu lá nặng trĩu rủ im trong mưa. Cảnh ấy Hạnh nhớ đã ngắm nhiều lần, không biết ở đâu.
+
+Cái ý định viết văn mỗi lúc một thêm quả quyết. Hạnh phác qua trong trí hình ảnh các nhân vật chính: cha chàng mẹ chàng, các anh em chàng những thầy giáo, những bạn hữu của chàng. Hạnh chỉ nhìn thấy phía buồn cười của các nhân vật mà chàng tự hứa sẽ làm cho thực hoạt động.
+
+Bỗng Hạnh bật cười lên tiếng. Chàng vừa nghĩ đến ông thầy thuốc vời cái rọc thuốc lá dài lê thê. "Đoạn ấy tất mình tả phải hay!"
+
+Nhưng ông thầy thuốc đi liền với hai người đàn bà mà Hạnh không thể tách rời ra được... Chợt một ý tưởng êm đềm làm má Hạnh ửng đỏ: Chàng vừa có tà tâm tô điểm cho ái tình ngắn ngủi của chàng thêm đẹp, thêm tươi.
+
+Nhận ngay thấy rằng đó là một sự mỉa mai đau đớn, chàng đứng dậy buồn rầu tự nhủ:
+
+-- Thôi mai lại đi dạy học như thường.
+
+Làm như mình đã không như thường trong tuần lễ vừa qua.
+
+# Hai người bạn
+
+Tôi có nhiều bạn cùng mang cái tên ấy thế mà không hiểu sao, tôi đoán ngay được là ai, khi anh Đạt đến chơi báo cho tôi biết tin Phúc đã chết. Và tôi hỏi:
+
+-- Phúc phán già, phải không?
+
+Phúc phán già, trong đám anh em bạn học về thời tôi, còn ai không biết tiếng! Nhưng nhất nhờ về câu chuyện thù hằn mà tên anh không sao phai được trong ký ức chúng tôi, dù đã hơn hai mươi năm nay, nhiều người trong bọn chúng tôi chỉ gặp mặt anh chừng vài ba lần.
+
+Cái thù hơn hai mươi năm! Mà kẻ thù lại chính là người bạn thân nhất của anh, anh Tảo.
+
+Tôi quên hẳn vì sao tôi quen anh Phúc và anh Tảo. Chỉ nhớ rằng hai anh thường đến chơi chỗ chúng tôi trọ. Có lẽ hai anh ấy trước kia có học cùng trường Bảo hộ với anh tôi. Nhưng chúng tôi không khỏi lấy làm lạ rằng cũng như chúng tôi, Tảo và Phúc đều nể sợ anh tôi, đầu tuổi các anh ấy suýt soát, có lẽ hơn tuổi anh tôi.
+
+Tảo và Phúc đều làm công trong một nhà buôn của một người Pháp. Tôi không bao giờ tò mò hỏi nhà buôn ấy là nhà nào. Nhưng đoán chừng công việc cũng không lấy gì làm bề bộn, khó khăn vì thấy anh Phúc hay nói chuyện đi hát ả đào và anh Tảo còn đủ thời giờ trông coi giúp việc sổ sách cho cửa hàng thịt bò của một nguời bà con.
+
+Nhờ cái công việc phụ ấy của anh Tảo chúng tôi mua được thịt bò giá rẻ. Hôm nào anh Tảo cũng chọn cho miếng thịt ngon nhất, còn xương nấu xúp thì anh cho rất hậu tuy mỗi hôm trong sổ chúng tôi chỉ biên có một hào. Mãi sau này tôi mới biết cửa hàng thịt bò là của người bà con anh Tảo, chứ ngày xưa tôi vẫn yên trí rằng chính anh Tảo là chủ. Không phải vì tháng tháng thấy anh Tảo đến thu tiền sổ, mà vì nhìn thân hình béo tốt, lực lưỡng, ngắm cái mặt hồng hào đầy đặn của anh, tôi không thể gán cho một nghề khác là nghề bán thịt bò được.
+
+Hơn một năm gần đây, một hôm tôi đã lại gặp anh. Tôi thấy anh không thay đổi chút nào. Vẫn cái tầm vóc to béo, vẫn cái mặt đỏ gay như quả lựu rám nắng hồng, da căng thẳng và bóng loáng, trong đó hai con mắt xếch và một mi long lanh đưa đi đưa lại rất nhanh và cái miệng rộng luôn luôn mở ra hoặc để nói hay để cười. Tất cả cái hình ảnh rất quen, rất thân mật thời xưa còn giữ được nguyên vẹn. Nguyên vẹn, cả cử chỉ và ngôn ngữ.
+
+Chợt thấy tôi anh cười ha hả, vui mừng đến nắm lấy tay tôi mà nói, nói không ngừng như không cần tôi đáp lại:
+
+-- Lâu lắm mới lại gặp cậu. Thế nào cậu có được mạnh không? Nghe nói bây giờ cậu viết văn, phải không?
+
+Thì ra cái thời gian ngoài hai mươi năm anh Tảo không thèm kể vào đâu: anh vẫn coi tôi là một "cậu" em bé mặc quần ngắn cắp sách đi nhà trường. Cả tác phẩm của tôi, anh cũng không cần đọc: nghe người ta đồn là đủ rồi. Những lời nói bô bô của anh làm tôi hơi ngượng, vì lúc ấy chúng tôi đương ở giữa một nơi hội họp có tới gần nghìn người. Nhưng dù bao nhiêu con mắt tò mò nhìn chúng tôi, dù tôi muốn bỏ chạy biến đi nơi khác, tôi vẫn không thể rời được người bạn xưa: mắt tôi như dán vào cái mặt đỏ mà bao giờ tôi cũng đoán thấy đầy thành thực, đầy thẳng thắn, đầy khảng khái, cái mặt của Quan Vân Trường nếu có bộ râu dài.
+
+Sự thực, tôi mới biết hai tính nết của con người kỳ dị ấy. Là tính vui vẻ, dễ dãi và tính nóng nảy, giận dữ.
+
+Cái tính nết thứ nhất đã biểu lộ ra rõ rệt trong một buổi ăn mà chúng tôi mời anh Tảo đến dự. Hôm ấy anh bán thịt bò cho chúng tôi bằng một giá rất rẻ, có thể nói bán một, cho một.
+
+Rồi buổi chiều mới gần năm giờ anh đã đến và chẳng nói chẳng rằng, anh cởi áo dài ra, bỏ khăn xếp vứt xuống bàn. Đoạn anh chạy thẳng vào bếp. Mãi sau chúng tôi mới biết anh đi làm các món ăn, vì anh thạo về khoa nấu nướng. Bữa cơm ấy chúng tôi ăn ngon lắm, một phần nhờ về các món nấu khéo nhưng nhất là vì cái tính dễ dãi của anh Tảo đã làm cho chúng tôi cảm động và sung sướng.
+
+Tính nóng nảy của anh thì ai cùng phải ghê sợ. Một lần tôi được mục kích anh đánh người kéo xe và tôi đã phải rùng mình. Anh mặc cả năm xu, người xe bằng lòng, nhưng khi đến nơi lại giữ giọng vòi vĩnh đòi bảy xu. Anh Tảo mặt đã đỏ càng đỏ thêm. Mắt anh đã xếch càng xếch quá. Hai hàm răng anh nghiến lại. Rồi anh nắm tay quai mạnh một cái. Người xe ngã khuỵu và gục đầu vào ngực. Tức thì anh Tảo như bừng tỉnh cơn mê, cúi xuống đỡ người phu xe dạy, xoa vuốt nắn bóp cho tới khi người ấy hoàn hồn. Rồi anh ấn hai hào vào bàn tay người ấy và giục: "Đi, đi ngay không lại khổ bây giờ!"
+
+Còn người bạn thân của anh? Còn anh Phúc?
+
+Đem so sánh với anh, thì đó thực là một cái trái ngược, trái ngược từ hình thể cho chí tinh thần.
+
+Về hình thể, nếu Tảo là ông ác thì Phúc là ông thiện. Một người mặt đỏ như lúc nào cũng say rượu, một người mặt tái như mắc bệnh thiếu máu. Trong gương mặt nhợt nhạt ấy cái gì cũng chậm chạp, lười biếng: hai con mắt lim dim hấp háy như buồn ngủ; cái trán rộng và cao, yên lặng và thư thái, người ta đoán cho những tư tưởng, những ý nghĩ cũng yên lặng và thư thái, âm ỷ như lửa âm ỷ cháy trong đống trấu phủ kín tro tàn. Trên cái mặt uể oải lạnh lùng ấy chỉ có cái miệng là hoạt động, tuy hoạt động một cách cũng uể oải, lạnh lùng. Trong khi Phúc ngồi nghe chuyện, tất cả mắt trán, tai anh như để ở đâu đâu. Duy có cái miệng là tỏ rằng anh đương chú ý đến câu chuyện: vì luôn luôn nó nhếch ra, nó mủm mỉm, nó hơi hé để hàm răng không đều và trắng bệch.
+
+Chính nhờ về cái miệng có duyên ấy mà Phúc đã được anh em tặng cho cái biệt hiệu "phán già" ngay từ thời anh còn theo học năm thứ nhất tại trường Bảo hộ. Người ta cho anh nói khéo như một ông phán già.
+
+Sự thực, những câu trả lời đúng chỗ của anh rất nhanh, rất ngắn, nhưng rất ngộ nghĩnh rất buồn cười có khi rất chua chát nữa. Nhờ thế mà anh đã khét tiếng ở các nhà cô đào và ai ai cũng phải gờm, phải sợ anh.
+
+Nhưng cái miệng anh không những chỉ có tài châm chọc, nó lại có cả tài kể chuyện.
+
+Tôi yêu anh, thích anh cũng vì cái tài ấy. Những câu chuyện cổ tích, hay tiếu lâm cũ rích mà ai ai cũng đã nghe thuật đi thuật lại hằng chục lần, những câu chuyện ấy ở miệng anh kể lại, vẫn làm cho mọi người phá lên cười vui sướng. Hình như anh Phúc đã nhận được hết cả những bí thuật của khoa kể chuyện. Chỉ hơi lên giọng, xuống giọng, chỉ ngừng lại một vài giây, anh cũng đủ làm tôn giá trị những ý tưởng tầm thường và ở người khác, có lẽ nhạt nhẽo nữa.
+
+Tôi mê nhất những chuyện chiếu bóng của anh. Anh kể thong thả, từ từ, khiến người nghe như trông thấy đương lần ra trên màn bạc, như được ngắm các nhân vật cử động, nói cười, tuy thời ấy chưa có chiếu bóng nói. Những chuyện từng hồi, anh cũng kể từng hồi. Tới chỗ nghỉ, nghĩa là chỗ khiến người ta hồi hộp, sợ hãi, mong ngóng đoạn tiếp, anh ngừng lại hoặc để đánh diêm hút thuốc lá, hoặc để nằm im một lúc lâu như đã ngủ. Anh chỉ kể chuyện ban đêm, những đêm anh ở lại ngủ cùng giương với chúng tôi.
+
+Ngoài cái thú kể chuyện, anh Phúc còn có cái thú làm thơ. Thơ anh tôi không nhớ có hay không, nhưng hình như buồn lắm và ác lắm. Anh Phúc ưa những tư tưởng chán đời và trào phúng. Nghe đâu nhiều lần anh đã xướng họa với thi sĩ Tản Đà trong những tiệc rượu say sưa. Tôi thì tôi không phục tài làm thơ của anh bằng cái tài thuộc thơ người khác. Thơ Xuân Hương, thơ Yên Đổ, thơ của khắp các thi sĩ cổ, kim, anh đọc vanh vách, không dắp một câu, mà anh đọc với cái giọng trầm trầm rất dễ yêu.
+
+Người ta nói nhờ về cái tài kể chuyện và cái điệu thơ sầu êm ái, Phúc đã chiếm được nhiều trái tim lãng mạn đa tình, đa tứ. Mà chính Phúc cũng tự phụ khoe khoang rằng chưa hề mất tiền cho tình nhân cô đầu bao giờ. Có lẽ anh không khoác lác đâu, vì chính trong bọn chúng tôi, ít người đã thoát khỏi sức hút của cái duyên thầm kín ấy.
+
+Và tôi đoán chưa chắc cái duyên thầm kín đã không giúp một phần lớn trong sự đắc thắng trên đường đời của Phúc: Tay trắng Phúc đã trở nên có bạc vạn, làm chủ hai ba tòa nhà ở Hà thành. Đó không phải là một viên thư ký nhà buôn cần cù như Tảo. Vì thế, để Tảo mài đũng quần trên ghế làm công, anh bỏ ra kinh doanh các việc to tát và nguy hiểm. Ngày nay Tảo vẫn còn làm công, và nghe chừng cũng để ra được cái vốn dăm bảy nghìn.
+
+Cái chi của hai người bạn cũng như cái tài của họ cách nhau là thế, một đằng nghìn, một đằng vạn. Mà trí thức và tính tình họ còn cách nhau xa hơn nữa. Chúng tôi vẫn không hiểu tại sao hai người lại thân nhau được, lại yêu nhau được. Tôi đoán chừng, nhưng đó chỉ là đoán phỏng, hai người hợp nhau ở chỗ cùng tôn trọng luân lý Á Đông. Thực vậy tình bằng hữu của họ giống như tình bằng hữu của Lưu, Quan, Trương. Họ săn sóc đến nhau, coi gia quyến bạn như gia quyến mình. Một hôm lại chơi hai người - họ thuê nhà cùng ở với nhau - tôi đã cảm động ngắm họ thu xếp hành lý cho con gái một người bạn ở trọ nhà họ, tới hè về Nam Định với cha mẹ. Họ không quên một vật nhỏ, dặn đi dặn lại mãi những điều thông thường mà người con gái mười lăm tuổi kia hẳn phải biết.
+
+Nhưng hai người bạn ấy bỗng giận nhau, thù nhau. Còn ai hiểu tại sao. Chúng tôi cũng không biết họ giận nhau bao giờ. Một hôm gặp Phúc tôi hỏi thăm tin tức của Tảo. Phúc lạnh lùng đáp: "Không biết". Nhưng Tảo thì thật thà và sôi nổi hơn. Tôi vừa đọc tới tên Phúc, anh đã xua tay gạt liền: "Cậu đừng nói đến thằng ấy với tôi nữa. Tôi đã thề không nhìn mặt nó!"
+
+Sự thù ghét đến thế ư? Và chắc hẳn nó có một nguyên nhân sâu xa, quan hệ. Trong hơn hai mươi năm nay những người quen biết Tảo và Phúc gặp nhau thường bàn tán về cái thù gần góc thế kỷ ấy. Họ nêu ra nhiều thuyết lắm. Họ dựng thành hẳn từng thiên tiểu thuyết. Có kẻ cho rằng vì tình, có kẻ đoán rằng vì luân lý. Lại cỏ kẻ tin chắc rằng vì chính trị. Nhưng sự thực vẫn không ai biết. Sự thực vẫn chôn sâu trong óc trong tim hai người bạn xưa đã trở nên hai cừu địch trứ danh.
+
+Có điều này quân tử trong cái thù kinh niên của hai người. Là họ không từng nói xấu nhau một câu. Họ chỉ yên lặng ghét nhau, yên lặng khinh nhau, yên lặng tránh nhau. Gặp nhau ngoài phố và không kịp lảng, thế nào một người cũng vào một cửa hàng vờ mua thức gì để chờ cho người kia đi qua. Nếu không có cửa hàng thì họ gõ cửa vào chơi liều một nhà không quen biết.
+
+Lại điều này nữa, cái thù của hai người không tiến mà cũng không lui. Trong bao năm lúc nào cùng thản nhiên, thoáng qua, nhưng sự thực, chúng tôi biết, nó vẫn nung đốt hai tâm hồn khổ sở.
+
+Cách đây ba bốn tháng, Đạt gặp Tảo. Và chính Tảo báo cho Đạt biết cái tin buồn: Phúc vừa chết độ mười hôm. Tảo tiếp:
+
+-- Nghĩa tử là nghĩa tận, cậu ạ. Tôi cũng có mang vàng hương đến viếng nó. Nhưng giữ lời thề, tôi không nhìn mặt nó, tôi không nhìn cả cái áo quan đựng nó nữa.
+
+Đạt ngần ngừ nói:
+
+-- Câu chuyện thù hằn của hai anh, lâu nay tôi không dám hỏi đến, sợ ở trong có điều bí mật phạm tới danh dự hai anh. Nhưng nay anh Phúc đã từ trần rồi thì anh có thể cho tôi biết cái duyên cớ đã khiến hai anh giận ghét nhau không?
+
+Anh Tảo ngẫm nghĩ một lát rồi trả lời:
+
+-- Được, nay nó chết rồi thì tôi có thể kể lại đầu đuôi câu chuyện với cậu lắm. Hôm ấy tôi và nó đương ngồi ở phòng giấy thì chủ vào đưa cho nó một tập giấy dầy và bảo nó: "Anh làm việc này, Tuyên làm việc này, còn thừa bao nhiêu việc khác giao tất cả cho Tảo". Cậu có biết nó trả lòi thế nào vói chủ không? Nó nói gọn thon lỏn: "Mais monsieur, je suis sur que Tảo en est incapable". [^15]Đấy câu Pháp văn của nó đấy, tôi không thêm, không bớt một chữ. Cậu tính có điếng anh em không? Hót chủ rằng mình "incapable" mà lại hót chủ ngay trước mặt mình. Lúc bấy giờ tôi đương bận viết bức thư về thăm thầy tôi ốm. (Chừng Tảo cho rằng đó là một bổn phận thiêng liêng nên càng giận bạn). Tôi liền gấp tờ giấy lại, đứng phắt lên nói với chủ: "Con fiez moi toutes ces affaires et vous verrez dans une heure si je suis capble ou non". [^16]Đó cũng là, theo lời Tảo, câu đáp nguyên văn của anh trong khi anh tức giận.
+
+Thế là từ hôm ấy, từ giờ ấy, từ phút ấy, hai người bạn không nói với nhau một lời, không nhìn tới mặt nhau nữa.
+
+Nghe Đạt thuật xong chuyện, tôi kinh hoảng bảo anh:
+
+-- Trời ơi! Nếu quả thế thì hai người đã giận oan nhau trong gần một phần tư thế kỷ nay rồi. Lỗi chỉ ở câu tiếng Pháp. Vì tôi chắc không có lý gì anh Phúc lại hót chủ để phản bạn ngay trước mặt bạn. Và câu Pháp văn của anh chỉ có nghĩa: "Thưa ông, nếu ông giao tất cả công việc cho Tảo thì Tảo nó không thể làm xuể được đâu". Sự thực. Phúc chỉ có lòng tốt bạn.
+
+Đạt cười đáp:
+
+-- Ừ, nhưng sao Phúc cũng giận, cũng thù Tảo?
+
+-- Lại cũng vì câu trả lời tiếng Pháp của Tảo. Phúc cho là Tảo nói xược mình, khinh bỉ mình ở trước mặt một người Pháp. Thế rồi hai người chôn sâu trong lòng những điều uất ức, không đem ra phân trần, bày tỏ với ai một người vì tính nết thâm trầm, một người vì tâm hồn khảng khái.
+
+Đạt mỉm cười suy nghĩ rồi kết luận bằng một câu triết lý:
+
+-- Biết đâu những thù hằn sâu xa, to tát của người ta lại khơng có toàn những nguyên nhân nông nổi, vô lý như thế cả.
+
+# Tương tri
+
+Tôi ở Sầm Sơn đã hăm tám năm, ngay từ thời tôi tậu cái nhà nghỉ mát này. Năm ăy tôi vừa bốn mươi và đương làm ký lục tòa án tây ở Hà Nội. Một hôm đi chơi xa về tôi húng hắng ho. Cũng tưởng cảm qua loa, rồi khỏi. Nào ngờ bệnh cứ liên miên kéo dài mãi. Nghe lời anh xem, tôi đi xem đốc tờ. Thì ra, ông ạ, hai lá phổi của tôi đã lỗ chỗ bắt đầu có chấm đen. Ấy là đốc tờ nói thế thì tôi chẳng biết thế. Nhưng dầu sao tôi cũng sợ hãi, kinh hoảng, cuống cuồng. Tôi lo tôi chết, nhất đốc tờ lại khuyên tôi nên nghỉ hẳn công việc về tĩnh dưỡng ở một nơi thôn quê hẻo lánh quang đãng. Tôi tin chắc rẳng ông đốc tờ không nỡ bảo thẳng cho tôi biết rõ cái bệnh trầm trọng của tôi, và tôi hiểu ý nghĩa sâu xa của câu nói kín đáo.
+
+Thế là tôi xin thôi việc. Nhà tôi giầu có. Tôi chỉ làm việc cho đỡ buồn, sau hai lần thi trượt vào trường Sĩ hoạn. Cha mẹ tôi lại đã mất cả. Tôi hoàn toàn tự chủ đời tôi. Vả lúc bấy giờ mình còn mong gì, đời mình còn dài mấy. Mà bảo mình chí thú làm ăn tính toán kia khác vì thế, ngay vụ nghỉ hè năm thôi việc, tôi vào đây nghỉ mát, thuê cái nhà này rồi mua hẳn. Tiêu tiền, tôi chỉ nghĩ có một việc tiêu tiền, tiêu cho sướng tay rồi chết. Các con tôi thì tôi đã dành cho mỗi đứa một vài cái nhà hoặc ở Hà Nội, hoặc ở Hải Phòng rồi.
+
+Nhưng đấy ông coi, hăm tám năm qua, nào tôi đã chết đâu? Mà lạ quá ông ạ, tôi vẫn húng hắng ho như ngày mới mắc bệnh, có lẽ tôi cứ húng hắng ho mà cứ khỏe mạnh như thế này cho tới ngày xuống lỗ.
+
+Nay tôi quen đi rồi chứ mấy năm đầu thì khổ lắm. Lăm le chờ chết dến... Thà nó đến ngay cho, cũng xong. Nhưng sang năm thứ tư, tôi hầu quên hẳn bệnh ho của tôi. Rồi cho qua những ngày nóng nằm nghỉ trong này - vì hết hè tôi đã trở về Hà Nội - tôi đánh tổ tôm, đánh cờ - nhất là đánh cờ. Tôi thích cờ lắm, ham mê nữa. Trong mười năm gần đây tôi rất chịu khó xem các sách trận, thế và luyện tập với các tay cao cờ ở Hà Nội, Hải Phòng, nên nay đánh cũng có nhiều nước khá, nhiều nước hay. Ở đây họ đồn đại tiếng cao cờ của tôi nhiều lắm và cho là tôi vô địch, nên động có tay yêu cờ vào nghỉ mát, như ông chẳng hạn, là phải tìm đến thăm tôi. Nhưng ông ở các nơi thì tôi chả dám nói, chứ người ở vùng này ít ai hạ nổi tôi, trừ khi tôi cố ý thua thết khách một, hai ván. Họ tâng bốc mình là vô địch, thực cũng không ngoa lắm, vô địch đối vói họ.
+
+Tôi yên trí thế mãi. Nhưng một lần binh... binh gì người hạt Nông Cống tôi quên mất tên, hòa với tôi một ván rồi hạ luôn tôi ván sau. Hôm ấy tôi vừa ăn cơm sáng xong. Một người lính khố đỏ ngồi ăn quà ở hàng nước trước cửa nhà tôi. Người ấy nói nghe đồn tôi cao cờ muốn xin hầu một ván. Thằng người nhà tôi vào thuật lại với tôi. Tôi liền cho ra mời người ấy. Hắn cao thực ông ạ, mà ván ấy kéo dài từ mười một giờ cho tới năm giờ chiều. Đánh xong ván sau thì tối mịt. Ván ấy tôi thua.
+
+Nhưng thua thì thua, tôi vẫn không phục, nhất là không mãn nguyện được thua một tay địch thủ, vì người lính cao thì có cao, nước cờ vẫn chỉ là nước cờ nhà nghề, không phải nước cờ phong lưu tài tử. Đánh với hắn ta, tôi tưởng tượng như đánh với một anh nhà quê xòe cái quạt hới che đầu trước một cửa đình vào đám. Những nước cờ chắc chẳn, vững chãi, giữ gìn, không bao giờ lầm lẫn, nhưng tầm thường như nước "kiệu một" của con ngựa nết na chạy thẳng một mạch tới đích. Kể thì là con ngựa đã khá lắm rồi, vì nhiều người đánh cờ như lừa hay bò chạy, chán ngắt!
+
+Tôi thật dài dòng quá, phải không? Tôi hứa với ông một câu chuyện kỳ thú mà chưa có một tí gì gọi là thú cả. Xin lỗi ông, nhưng tôi phải kể có ngành, có ngọn thế thì ông mới hiểu gặp cụ tú tôi sung sướng biết chừng nào.
+
+Tôi vẫn chưa hỏi thăm được tính danh quê quán của cụ tú. Tôi chỉ biết cụ tú một cụ tú, thế thôi.
+
+Một hôm - cách đây bốn năm - vào khoảng mười một giờ sáng, lúc tôi sắp sửa ăn cơm, người nhà tôi nói ở cổng có người tự xưng một ông tú tài ở vùng này đến chơi. Tôi cho mời vào. Cụ tú là một ông già ngoài bảy mươi tuổi, y phục rất cổ, đầu đội mũ ni nhiễu, mình mặc áo thâm rộng, tay chống cây gậy trúc. Có lẽ cụ thích lối y phục ấy chứ sự thực, cụ tuy râu tóc bạc phơ mà người còn khỏe mạnh, chưa điếc, chưa lòa, chưa gù, cái gậy cụ cầm là một vật trang sức hơnn là một vật cần dùng.
+
+Tôi hỏi: "Thưa cụ, tôi chưa được biết tiếng cụ, chẳng hay cụ có điều gì đến chỉ giáo cho?" Cụ cười to đáp: "Tôi ở cách đây xa lắm. Sáng sớm hôm nay, vào khoảng năm giờ, tôi bắt đầu ra đi, thế mà bây giờ tôi mới tới đây. Tôi không quản đường xá xa xôi, hiểm trở, vì phải leo một trái núi, để đến xin hầu cụ một ván cờ".
+
+Tôi kinh ngạc, cảm động nữa; xưa nay tôi mới thấy một ông già lạ lùng này, chống gậy đi bộ nửa ngày trời để đánh một ván cờ. Tôi nói với cụ tú: "Thưa cụ, cờ tôi chưa có gì mà được cụ quá trọng vọng như thế này, thực tôi lấy làm tự thẹn". Cụ tú cười sang sảng đáp lại: "Thưa cụ chỉ vì tôi nghe đồn cụ là một kỳ thủ vô địch ở vùng này nên tôi mới trèo non vượt suối qua đây, xin cụ đừng quá nhún và cho tôi hầu một ván".
+
+Tôi mời khách xơi cơm. Khách chối từ nói trước khi ra đi đã ăn lót dạ và giữa đường đã dùng cơm nắm chấm muối vừng. Ông thấy chưa? Đem cơm nắm muối vừng ra đi chỉ vì nghe đồn có một tay cao cờ ở một nơi kia. Mà tôi chắc trong chiếc khăn gói nhỏ khoác vai, thế nào cụ tú cũng còn đủ lương thực để dùng trên con đường về.
+
+Sau nể lời mời mọc khẩn khoản, cụ cũng nhận uống với tôi một chén rượu.
+
+Rồi chúng tôi đánh cờ. Cờ cụ tú cũng khá, đại khái như cờ tôi, có kém thì cũng chỉ kém độ một tốt. Chúng tôi chơi ba ván, ván đầu tôi được, ván thứ hai cụ tú được, ván thứ ba tôi cố ý tính hòa tuy cờ tôi có phần thắng thế.
+
+Lúc cụ tú ra về, trời đã xế chiều. Tôi hết sức giữ cụ nghỉ lại đây một đêm, nhưng cụ nhất định cáo từ, nói nhân có trăng về ngay cho được mát.
+
+Tôi âm thầm nhớ ông bạn mới, buồn rầu tưởng tới lời hứa sẽ lại đến chơi. Sẽ lại đến chơi? Tôi tin sao được. Ngoài bảy mươi tuổi đi nửa ngày trời để đánh ván cờ. Một lần còn có thể được, chứ mãi mãi thì có tài thánh.
+
+Tôi bỗng hối hận rằng sao không cả quyết giữ mà lại để cụ tú về. Tôi nghĩ thầm: "Đường qua núi, qua đèo, dù có trăng cũng khó nhọc cho một ông cụ già. Nói gì khó nhọc, nhỡ cụ xẩy chân ngã xuống khe, xuống suối thì sao?" Đêm hôm ấy tôi băn khoăn không nhắm mắt.
+
+Và tôi luôn luôn thấp thỏm lo lắng cho tới mười hôm sau, vào hồi mười giờ sáng, cụ tú lại chống gậy đến. Cụ mở khăn gói lấy ra cho tôi một chai rượu ngâm thuốc mà nói rằng: "Rượu ngang vùng tôi ngon lắm, tôi đem biếu cụ một chai. Tôi bỏ vào mấy miếng truật cho đoan nó khỏi bắt". 
+
+Tôi bảo người nhà sắp thức nhắm, rồi bày bàn cờ ra đánh. Đi được dăm nước, tôi nhận thấy ngay rằng cụ tú đã trở về nhà mở trận ra luyện để phá nước pháo thăng hà của tôi. Tôi tự nhủ: "Không ngờ ông già bảy mươi này lại có chí phấn đấu và tính hiếu thắng đến thế". Và điều này nữa, chẳng rõ ông có để ý không, chứ tôi thì tôi nhìn không sai, là người làm sao nước cờ hiện ra làm vậy. Người bủn xỉn, bẩn thỉu, nhỏ nhen thì nước cờ giữ gìn, bo siết từng tí: đó là nước cờ của các bác nhà nghề đi giựt giải ở các đám hè, đám hụi. Những người rộng rãi phóng túng, liều lĩnh, anh hùng, nước cờ cũng rộng rãi phóng túng, liều lĩnh, anh hùng. Những người ác nước cờ không thể hiền lành được. Những người nhã nhặn có lễ độ, nước cờ không bao giờ lấc cấc, du côn. Những người quân tử không thèm đánh trộm, những kẻ tiểu nhân lừa lọc từng miếng. Nước cờ cụ tú tỏ ra rằng cụ là một ông tướng can đảm sáng suốt, có mưu trí lúc lâm nguy hay lúc khởi thế công. Nhưng thế thủ của cụ hơi chểnh mảng một chút. Tôi chưa rõ cụ ở vào hạng người nào trong xã hội, nhưng tôi đoán cụ có óc cách mạng. Mãi sau, trong câu chuyện thân mật tôi mới biết trước cụ có dính dáng vào việc văn thân và đã bị đầy mấy năm ra Côn đảo.
+
+Lần thứ hai ấy chúng tôi chỉ đánh có một ván. Cụ tú đòi về ngay cho được sớm sủa, vì hôm ấy không có trăng.
+
+Từ đó cứ mươi mười lăm hôm cụ tú lại đến chơi đánh cờ, cho tới hết hè tôi ra Hà Nội.
+
+Rồi vụ hè năm sau cuộc chơi cờ lý thú của chúng tôi lại nối.
+
+Một hôm tôi tiễn cụ tú một quãng dài khỏi làng Trường Lệ. Chúng tôi noi theo đường núi tới chỗ rẽ xuống xóm Sơn mãi mới ra bãi biển theo ven làng Trường Lệ. Khi đứng trên ngọn núi cao, tôi trỏ một làng xa xa mờ mịt dưới mấy khóm phi lao và hỏi: "Cụ ở vùng kia, phải không?"
+
+Cụ lắc đầu đáp: "Không, xa hơn đấy nhiều". Rồi cụ đứng rướn thẳng người lên, nhắm gậy trúc về một phương, nói tiếp: "Tận nơi kia, sau hòn núi đá xanh xanh và như hình một bức bình phong đó".
+
+Tôi ngắm cụ tú, tôi ngắm diện mạo dáng bộ cụ, tôi ngắm cảnh biển chung quanh và tôi mơ màng như sống lùi lại hàng nghìn năm, vào thời người và tiên thường gặp nhau trên núi cao, trên biển cả; cụ tú với cái mũ ni nhiễu tam giang, với cây gậy trúc màu vàng ngà đã hiện ra trước mắt tôi thành một nhà đạo sĩ đi tìm thuốc trường thọ. Dưới kia trên mặt nước phẳng lặng, khúc nhạc chất phát nghìn xưa của bọn dân chài cũng đang
+
+diễn lại: Tiếng gõ mạn thuyền theo liền với những tiếng kêu mọi rợ "Ớ! Ới... Ơi!" kéo dài mãi điệu bộ. Họ dọa nạt cá đấy. Hẳn ông cha ta về thời Trần, thời Lý thời Đinh cũng dọa nạt quân địch như thế. Và đoàn thuyền đánh cá kia so với thuyền trận của các cụ ta nào có khác nhau mấy tí?
+
+Qua làng Trường Lệ, cụ tú nhất định mời tôi trở về cho kỳ được mới nghe. Rồi cụ rẽ lên đường đi biệt vào trong rừng phi lao.
+
+Thế là tôi chỉ biết cụ ở vào phía sau dãy núi bình phong mơ hồ như một ông tiên trong một nơi động khuất nẻo.
+
+Năm ngoái, chờ mong mãi không thấy cụ tú ra đánh cờ, tôi nhớ quá. Nhớ mà chả hiểu làm thế nào để dò thăm tin tức. Hỏi người vùng này thì họ chẳng rõ cụ tú già ấy là ai và ở đâu.
+
+Đã có lần cùng một người nhà, tôi mò mẫm về tận vùng trái núi bình phong, nhưng cũng chịu không tìm được di tích cụ tú kỳ dị.
+
+Đến năm nay, đã gần hết hè rồi mà vẫn chưa thấy cụ tú ra, thì tôi đoán chắc rằng cụ đã quy tiên.
+
+---
+
+Kể dứt câu chuyện, cụ ký uể oải bày quân ra bàn cờ để cùng tôi đánh giải khuây một ván.
+
+# Thời chưa cưới
+
+Trên bãi biển Sầm Sơn, Phát và Hoàn biết nhau lưu ý đến nhau rồi thân mật với nhau.
+
+Hoàn và mẹ thuê nhà nghỉ mát, thuộc dãy thứ sáu. Mỗi khi ra bãi biển, Hoàn phải qua một khách sạn nhỏ. Phát trọ ở đấy. Sáng nào, chiều nào chàng cũng đừng trên hiên gác đợi Hoàn đi tắm. Và chàng thả xuống những lời bỡn cọt. Trước Hoàn còn mỉa mai đáp lại. Sau thấy anh chàng trơ trẽn quả, nàng lặng thinh, hoặc mỉm cười khinh bỉ.
+
+Nhưng cái lặng thinh ấy, cái mỉm cười ấy, Phát không cho là ý nghĩa khinh bỉ. Trái lại, chàng nhất định tin rằng Hoàn ưng mình.
+
+Hoàn khó chịu đi lối khác ra biển tuy lối này vừa dài hơn, vừa bẩn hơn, nhất là những hôm trời mưa. Biết thóp, Phát đến đón ở gần cổng nhà Hoàn, để theo nàng đi tắm. Hoàn bật cười. Và chẳng giữ nổi lạnh lùng, nàng trả lời Phát một câu nhã nhặn: Thế là hai người bắt đầu làm quen nhau. 
+
+Từ đấy Hoàn lại theo con đường cũ. Mỗi lần qua khách sạn, nàng ngửng lên nhìn, và cố nhiên gặp Phát đứng vẫy rồi vội xuống để cũng đi ra bãi biển. Hoàn thấy Phát có duyên Phát thấy Hoàn không nhạt cũng không rởm đời như phần nhiều thiếu nữ chàng đã gặp. Đó là, theo ý chàng, một hạnh kiểm rất hiếm ở một cô gái con nhà.
+
+Nhờ làn không khí dễ dàng ở nơi tắm biển, hai người rất chóng thân mật, suồng sã với nhau nữa. Nghĩa là có những cử chỉ và ngôn ngữ mà ở Hà thành người ta sẽ cho là quá thân mật, suồng sã. Ở đây, đó chỉ là những sự đã được coi thường, đã quen mắt lắm. Ở đây, còn ai giữ gìn bẽn lẽn làm gì nữa, khi mà nam nữ gần trần truồng đứng nói chuyện với nhau hằng giờ rất tự nhiên và thẳng thắn. Ở đây, chỉ những người giả đạo đức mới cho thế là lõa lồ, là dơ dáng.
+
+Vì thế, không ai lưu ý đến Phát và Hoàn khi hai người cầm tay dắt nhau đi dưới nước, hay rúc rích cười nhảy theo làn sóng trắng. Và khi Phát dạy Hoàn bơi, không những chị em bạn Hoàn không lấy làm chướng mắt mà còn nhờ Hoàn giới thiệu mình với Phát để được chàng dạy. Phát đã trở nên một thiếu niên được phái đẹp cưng chiều trên bãi biển. Chàng không lấy thế làm tự hào với đám phụ nữ vì ngoài Hoàn ra chàng không để mắt tới một ai. Chàng sung sướng rằng môn bơi lội của mình đã làm tôn giá trị mình ở trước mặt Hoàn.
+
+Còn Hoàn thì nàng tự phụ rằng đã quen trước các chị em một người có tài bơi lội - chỉ cái tài ấy là đáng kể ở nơi bãi biển - mà lại quen thân. Nhưng một hôm, chính nàng cùng không hiểu tại sao, nàng bỗng cảm thấy nàng ghen. Tính tình ấy vụt hiện ra trong tâm khảm nàng. Có lẽ thoạt tiên đó chỉ là lòng ích kỷ không ưng người khác có cái mình có. Phát đã dạy nàng bơi, nàng muốn một mình nàng được hưởng cái đặc quyền ấy.
+
+Rồi tính ghen thu hẹp lại trong phạm vi ái tình, Hoàn đau đớn nhìn Phát giữ trong tay những tấm thân màu nâu hồng, chắc nịch và khỏe khoắn.
+
+Nàng đã bắt đầu yêu.
+
+Phát thì mê man, ngây ngất trong giấc mộng mới nhóm. Chàng thấy Hoàn có đủ hết đức tính về hình thức và tinh thần. Một hôm chàng gọi đùa và nịnh: "Cô Hoàn toàn". Hoàn sung sướng và đỏ mặt, nhưng vờ hỏi:
+
+-- Sao anh lại gọi tôi là Hoàn toàn?
+
+Chàng mỉm cười đáp:
+
+-- Vì cô hoàn toàn đẹp cả người lẫn nết. 
+
+Mặt Hoàn càng đỏ, và nàng ngượng ngùng nhìn Phát:
+
+-- Anh cứ mỉa em!
+
+Thế là tiếng "em" đột ngột lọt vào trong câu chuyện, rồi ở lại đấy; trước còn ngập ngừng, sau trở nên tự nhiên và thân mật. Tới thời kỳ ấy, anh chị đã năng đến nhà nhau, hoặc Phát lại bà hàn rồi cùng bà và Hoàn ra bãi biển, hoặc Hoàn lúc qua khách sạn rẽ vào đó để đợi Phát thay slip. Những hôm bà hàn không đi tắm được, bà không quên dặn Phát:
+
+-- Ông đừng cho em ra xa quá nhé. Tôi nghĩ đến những người chết đuối mà tôi sợ... Mà ông cho em về sớm một ít.
+
+Lần nào Hoàn cũng cười và có khi nũng nịu đáp lại mẹ:
+
+-- Mẹ làm như con mẹ lên năm hay lên ba không bằng!
+
+Nếu con bà lên năm hay lên ba thì bà hàn đã chẳng lo sợ. Bà lo sợ chỉ vì Hoàn năm nay vừa mười tám. Nhưng bà đã kịp hỏi thăm tin tức về Phát rồi. Bà biết Phát là con nhà giàu sang lại sắp lên năm thứ ba trường Luật. Vì thế, bà bằng lòng cho phép Hoàn gần gụi Phát tuy bà càng cẩn mật giữ gìn con gái hơn trước. Bà thầm mong Phát sẽ trở nên rể bà, nhưng bà vẫn ngại cho cái tính quá phóng túng, quá tự do của cô con cưng.
+
+Trong khi ấy, Phát và Hoàn đi sâu mãi vào tính tình, vào tâm khảm nhau. Và một ngày một thêm kính trọng, yêu mến nhau hơn. Phát cho Hoàn là người vợ mình mơ ước bấy nay. Không một cái gì một người đàn bà cần phải có mà chàng không thấy Hoàn có. Về phần Hoàn, thì nàng mừng rằng nàng đã do dự chưa nhận lời lấy Phiên người đến hỏi nàng đầu năm nay. So với Phát, Phiên còn đáng kể vào đâu!
+
+Về Hà Nội Phát vẫn chăm chỉ đến nhà Hoàn. Bây giờ, tuy chưa hỏi, hai người đã tôn nhau như vị hôn phu và vị hôn thê của nhau rồi. Trong đám bạn bè của hai nhà, có người lại tưởng như Phát và Hoàn đã lấy nhau.
+
+Ở Hà Nội, làn không khí thân mật suồng sã ngoài bãi biển đã nhường chỗ cho một làn không khí trang nghiêm và buồn tẻ nơi khách thính. Nhưng không vì thế mà đôi bên thấy kém lạc thú trong sự giao thiệp. Có buổi chiều, hằng giờ ngắm nghía Hoàn đan chiếc áo len ở bên cạnh bà mẹ ngồi chăm chú phá trận, Phát sung sướng hơn là được trò chuyện với Hoàn. Vì trong lúc yên lặng ngắm nghía Hoàn chàng nghĩ đến cái sung sướng khôn cùng của chàng.
+
+Nghỉ hè năm sau, Phát đã đỗ bằng cử nhân. Và trước khi vào Sầm Sơn, chàng đã hỏi Hoàn làm vợ. Đó là một việc không cần vội, theo ý Phát và Hoàn, nhưng trước sau cũng một lần, làm cho xong đi thì vẫn hơn. Vả hỏi rồi, hai người sẽ được tự do nói chuyện, sẽ được tư do đi chơi mát với nhau mà không sợ người ta dị nghị.
+
+-- Nhưng chỉ hỏi thôi đấy nhé? Còn cưới thì hãy thong thả.
+
+Hoàn âu yếm bảo Phát thế. Và Phát cười ngất trả lời:
+
+-- Vâng, xin tuân thượng lệnh.
+
+Hoàn cảm động, giọng nói run run:
+
+-- Năm nay em mười chín, ước gì em được sống cái thời chưa cưới trong ba năm nữa.
+
+-- Bấy giờ em hăm hai và anh hăm sáu, vừa lắm. Thời chưa cưới càng dài, mình càng sung sướng, phải không em?
+
+Hoàn giọng nũng nịu:
+
+-- Chính thế. Với lại em sợ lúc cưới rồi, anh không yêu em bằng lúc chưa cưới.
+
+Phát cười, trách:
+
+-- Em không tin bụng anh sao?
+
+Hoàn vội vàng tạ lỗi.
+
+Quả nhiên hai người xin được nhà cho hoãn việc cưới. Họ đều là con cưng, muốn sao cũng được cha mẹ chiều theo.
+
+Năm nay ra biển, Hoàn thấy kém thú. Nàng cố tìm duyên cớ, và dễ dãi nàng cho ngay rằng Sầm Sơn buồn tẻ là vì số người ra nghỉ mát không đông. Sự thực thì chỉ tại năm trước nàng mới bắt đầu làm quen với Phát, nàng còn đương náo nức, bồng bột. Năm nay lòng nàng đã chấn tĩnh lại. Và bên người chồng chưa cưới, nàng thấy cần phải giữ gìn hơn bên một người bạn trai. Với người bạn, nàng không sợ phật ý. Với người chồng chưa cưới, nàng chỉ lo làm phiền lòng vì một câu nói lỡ, hay vì mất ý tứ kém thân yêu. Nàng trở nên thiếu thành thực đối với Phát và đối với mình. Không phải nàng không yêu Phát bằng năm ngoái, trái lại thế. Nhưng lúc nào nàng cũng phải cố biểu lộ tình yêu của nàng, đó có lẽ là cái cớ làm nàng lúc nào cùng áy náy không vui.
+
+Còn Phát thì chàng thấy cử chỉ của chàng ngượng ngập, ngôn ngữ của chàng lúng túng. Bọn phụ nữ quen chàng bảo nhau: "Phát làm sao ấy, không được như năm ngoái nữa". Quả thực, Phát kém thân mật, kém vui vẻ kém cả tự nhiên đối với họ. Chàng đã nhận biết tính ghen của Hoàn. Chàng thầm cảm ơn Hoàn, cho tính ghen ấy là tình yêu: Và chàng cố cư xử sao cho Hoàn khỏi bực tức vì chàng: Chàng lạnh lùng với tất cả mọi người, trừ Hoàn ra. Chẳng bao lâu chàng trở nên một người cứng cỏi, ít giao thiệp. Nguy hiểm cho chàng, Hoàn cùng nhận thấy thế.
+
+Nhưng may mắn cho hai người, mùa nghỉ mát của họ kéo dài có đến đấy. Họ về Hà Nội và tình thế cứu vãn kịp. Vì ở Hà Nội hai người ít gặp nhau như ở Sầm Sơn, và nhờ đó, ít phải giữ gìn hơn. Bởi thế họ lại cảm thấy họ yêu nhau nồng nàn. Có xa nhau mới biết yêu nhau mới nhận thấy tình yêu của nhau. Mà ở Hà Nội tuy gần nhau nhưng hai người vẫn xa nhau. Phát ngày hai buổi bận dạy học ở một trường tư. Rỗi lúc nào lại cắm cổ học thêm để chờ thi tham tá lục sự, hay thương chánh hay một chân kiểm soát ngạch tây nào đó. Theo luồng tư tưởng mới trong đám trưởng giả mới. Hoàn rất ghét quan, lấy sự nói xấu quan trong khách thính làm hợp thời thế.
+
+Hoàn cũng biết Phát chăm học lắm, và chăm học như thế là vì nàng. Nàng cảm động và yêu Phát hơn, mặc những lời chỉ trích của các chị em bạn. Họ bảo Hoàn:
+
+"Anh cử nhà chị học lấy chết à?" - "Anh đồ của chị học mụ người đi mất thôi". - "Bây giờ chả thấy mặt mũi anh chàng đâu nữa" - "Ghê quá! Hôm nọ gặp anh chàng ở Gô-đa, trông người bây giờ lù đù tệ!"
+
+Hoàn nghe những câu chế riễu đã chán cả tai. Nhưng một hôm nàng thấy Phát lù đù thật, nhất Phát lại đi bên cạnh một người bạn lực lưỡng, khỏe mạnh, đẹp đẽ bội phần. Phát giới thiệu bạn với vị hôn thê:
+
+-- Anh Huấn, một nhà quán quân quần vợt kiêm quán quân bơi lội, sinh viên trường thuốc.
+
+Hoàn nhã nhặn đưa tay ra bắt.
+
+Sang nghỉ hè năm thứ ba của thời chưa cưới. Đã có sự thay đổi: Phát vừa đỗ kiểm soát thương chánh và bà hàn vừa làm xong nếp nhà nghỉ mát ở Sầm Sơn. Bà mời Phát cùng đến ở với mẹ con bà, nhưng Phát từ tạ nói đã trót thuê nhà rồi. Sự thực, chàng giữ kẽ không muốn đến ở nhà vợ trước khi cưới, nhất chàng lại biết bà mẹ vợ rất khó tính và lắm điều.
+
+Vui vẻ khỏe mạnh nay đã trở về với Phát. Những người quen thuộc đều nhận thấy anh Phát năm xưa, hồi còn theo học trường luật. Nhưng Hoàn, trái lại, lúc nào cũng nghĩ ngợi nét mặt buồn tẻ, lạnh lùng, Phát mải đùa nghịch không hề lưu ý đến cái buồn, cái tẻ của nàng, làm nàng càng bực tức, khó chịu. Nàng khinh bỉ tự nhủ thầm:
+
+"Lúc người ta lên thì người ta biến đổi đến thế đấy! Nhưng mới được thế mà đã cho là lên thì tầm thường quá!"
+
+Và nàng thấy Phát tầm thường. Nhớ lại nàng không tìm thấy một cái gì cao thượng ở Phát. Nhưng nàng chép miệng tự an ủi: "Người ta tầm thường như thế cả, có gì mà mình phải bận lòng!"
+
+Giữa lúc ấy Huấn vào Sầm Sơn, đến ở nhà Phát. Tính ngộ nghĩnh hay pha trò của Huấn khiến Hoàn quay về với vui vẻ được hơn một tuần lễ. Rồi sau khi Huấn ra Hà Nội đâu lại vào đó.
+
+Một hôm nàng mỉm cười chua chát đứng nhìn Phát giữ cho một bạn gái của nàng tập nằm ngửa trên mặt nước. Phát quay lại, thoáng nhìn thấy cái mỉm cười ấy, chàng không giữ nổi châu mày. Chàng nghĩ thầm: "Hoàn vô lý quá! Bạ ai cũng ghen". Tính ghen mà trước kia chàng cho là tình yêu, nay chỉ là một tính tình nhỏ nhen, khả ố. "Chưa cưới mà còn thế này, nữa là lúc đã cưới, mình sẽ mất hết tự do". Chàng cũng không trang nghiêm nghĩ tới tương lai. Và ngay buổi chiều, chàng ngỏ ý kiến với Hoàn về tính ghen. Chàng không muốn để bụng một điều gì. Hoàn xin lỗi chàng. Phát đã quen với tính mỉa mai của vị hôn thê. Chàng không biết lúc nào Hoàn thành thực, lúc nào nàng riễu cợt. Đối với Hoàn, chàng thường ngờ vực, và những lời xin lỗi của Hoàn, chàng không dám chắc rằng đó là những lời thành thực..
+
+Giữa hai người như có một bức rào ngăn cản. Cả hai cùng cố phá bức rào ấy đi, nhưng phá một cách quá uể oải, nên một ngày nó mọc một dầy hơn, bền vững hơn.
+
+Chỉ còn những sự giả dối để che đậy: cử chỉ dịu dàng, ngôn ngữ mềm mại, thân mật. Và ở ngoài bãi biển bao giờ hai người cũng đi liền với nhau. Họ khoác cánh nhau, vui cười trò chuyện với nhau. Nhưng đó là những lúc linh hồn họ xa nhau nhất. Hoàn bảo Phát: "Sáng mai chúng ta ra tắm sớm nhé?" Và nàng nghĩ thầm: "Mình phải bảo Nga Lan cùng đi tắm mới được, nếu không thì sẽ buồn chết". Phát cố giữ cái ngáp để trả lời: "Phải đấy Hoàn ạ, mai đi tắm sớm nhé!" Và chàng tự nhủ: "Để ngắm cái mặt buồn hiu của bà vị hôn thê! Rõ khổ!"
+
+Họ đi sát cánh nhau. Họ nói chuyện để nghe thấy câu chuyện tẻ nhạt của nhau. Họ yên lặng để nghĩ đến, để nhớ đến cái xoàng, cái tầm thường của nhau, của gia đình nhau. Nay họ biết nhau, hiểu nhau như vợ chồng. Ba năm gần chung sống rồi còn gì! Cái mỉm cười của người này, người kia nhận thấy hết nghĩa sâu kín. Câu khôi hài của người kia người này cố không nghe thấy vì đã nghe không biết lần thứ mấy rồi.
+
+Họ hiểu nhau, để mà chán nhau, để mà khinh nhau. Nếu họ là vợ chồng rồi thì họ cứ chán nhau cứ khinh nhau, không sao. Đằng này họ là vị hôn phu, vị hôn thê của nhau. Họ có can đảm chán, khinh nhau mãi để chờ ngày cưới không?
+
+Phát cho việc hôn nhân của mình là một câu chuyện danh dự: vì chàng gắn bó theo đuổi mà Hoàn trở nên vị hôn thê của chàng. Bây giờ còn biết nói sao? "Thôi thì cũng liều vả lại lấy Hoàn vị tất đã khổ hơn lấy một người khác, bất cứ người nào. Về nhan sắc thì Hoàn chẳng kém ai. Có một người vợ đẹp kể cũng oai, cũng đáng tự hào với chúng bạn". Tư tưởng ấy làm Phát bật cười lên tiếng.
+
+Hoàn thì cho việc hôn nhân của mình là do số mệnh. Nàng nghĩ đến, nàng nhớ lại những người định hỏi nàng và bị nàng lãnh đạm từ chối. Nàng thấy những người ấy đều hơn Phát. "Ít ra cũng không tầm thường bằng!" Vì mới quen, nàng không biết tính tình họ, nhưng nàng chắc rằng không đến nỗi xoàng xĩnh như tính tình Phát.
+
+Kể nàng tìm cớ tuyệt giao thì cũng được, cũng chẳng khó khăn gì. Phiền một nỗi thời chưa cưới của nàng đã kéo dài quá. Ai ai cũng biết rằng nàng là vị hôn thê của Phát. Ai ai cũng nói đến. Hơn thế, người ta coi hai người như đã thành vợ chồng rồi. Chẳng lẽ bây giờ câu chuyện lấy nhau bỗng im bặt đi! Như cái pháo tịt ngòi? Thế còn ê chề hơn là nhắm mắt lấy nhau vậy. Giá Phát xin thôi, thì đã đi một lẽ. Ừ, giá Phát xin thôi...
+
+Từ đó nàng hy vọng Phát xin thủ tiêu hôn ước. Và tính nết nàng càng khó chịu: nàng mong thầm rằng nhờ thế mà may ra nàng được Phát tuyệt giao.
+
+---
+
+Hết hè, nhà Phát và nhà Hoàn nhộn nhịp sắm sửa. Đôi bên cha mẹ muốn lo xong việc hôn nhân cho con trước khi Phát được bổ vào Saigon.
+
+Và đám cưới linh đình, ồn ào, ầm ĩ.
+
+Để che cái nhạt nhẽo, cái lạnh lùng của hai linh hồn sắp hòa hợp.
+
+Tối nhập phòng Phát bảo Hoàn:
+
+-- Giá chúng ta lấy nhau ngay mùa hè mới biết nhau ở Sầm Sơn...
+
+Hoàn hiểu thấu tư tưởng của Phát, cau có hỏi:
+
+-- Sao anh lại nói thế?
+
+Phát chữa.
+
+-- Thì có phải bây giờ đã có con rồi không?
+
+Hoàn cười làm lành.
+
+-- Ừ! Thì bây giờ may ra đã có con rồi.
+
+# Một buổi chầu
+
+Đầu giờ Dần quan lễ-bộ-tả-thị-lang họ Hà đã thức dậy gọi gia nhân thắp đèn đuốc sáng trưng năm gian phòng tư thất. Sáng sớm hôm nay, ngài sẽ cùng văn võ bá quan vào cung chầu thiên tử, trong buổi đại triều thứ nhất về mùa xuân.
+
+Thánh thượng ngọc thể khiếm an đã hơn hai tháng. Đã hơn hai tháng các quan không được gặp thiên nhan. Vì thế quan thị lang sốt ruột mong chóng tới giờ bệ kiến.
+
+Không những quan thị lang đã nổi tiếng là một trung thần ai ai đều kính phục, mà chữ trung đối với ngài còn có một nghĩa cao cả thiêng liêng. Ngài đinh ninh thờ vua ở trên đầu, âm thầm thờ vua ở trong tâm. Lúc thức tơ tưởng đến vua, lúc ngủ chiêm bao thấy vua. Thị lang muốn cả cái thân ngài hoàn toàn là kỷ vật của vua và chỉ ao ước có dịp được hy sinh cho thánh thượng.
+
+Hy sinh! Xả thân vì thiên tử! Không một ngày nào, không một giờ nào, quan thị lang không nghĩ đến điều ấy. Rồi đem điều ấy dạy vợ dạy con, coi như đó là một học thuyết là học thuyết độc nhất của bọn thần tử, của toàn thể quốc dân.
+
+Thị lang không bỏ qua một dịp nào có thể nhắc đến ơn vua. Ngài thường bảo cho lũ con nhỏ biết rằng chúng ăn cơm vua, mặc áo vua ban, và cả gia đình đều nhờ lộc vua mà được sống.
+
+Nhũng lời xúc phạm tới vua, dù nhẹ đến đâu mặc lòng, thị lang không bao giờ tha thứ. Và ngài thường lấy địa vị một viên quan trong bộ Lễ tư sang bộ Hình đòi làm tội nặng cực điểm những kẻ phạm thượng.
+
+Mới cách đấy hơn một tháng, thị lang đã toan khép vào án tử hình bà thứ nhất yêu quý của ngài vì một tội chẳng lấy gì làm trọng cho lắm. Bà chỉ bình phẩm một câu về hoàng thượng, mà lại bình phẩm trong phòng khuê giữa câu chuyện ái ân đằm thắm. Nhân chồng báo tin cho bà biết rằng thánh thể bất an, bà mỉm cười nói:
+
+-- Bà thứ phi đẹp thế mà làm gì thánh thể chẳng bất an.
+
+Sự thực, năm trước hoàng thượng vừa kén được một cung tần, một thiếu nữ giặt chiếu bên sông mà mê vì sắc, trọng vì thông minh ngài đã cất lên ngôi thứ phi và rất đỗi thương mến như viên ngọc quý trên tay. Và câu nói của bà thứ nhất quan thị lang chỉ là một câu đùa bỡn trong lúc nũng nịu. Nhưng đối với người trọng thần kia, thì đó là một ý tưởng bất kính, một ý tưởng phạm thượng, phản trắc. Vì thế, ái tình quan thị lang đang bồng bột nồng nàn bỗng lạnh ngay như giá băng. Rồi ngài ra công đường thảo bức thư giao phó bà thứ nhất về với cha mẹ trong sáu tháng: bà được kết án nhẹ như thế là cũng nhờ vì có nhan sắc.
+
+---
+
+Quan thị lang đã đóng xong triều phục. Chỉ còn thiếu một đôi hia, vì ngài không ưng đi đôi hia thường. Ngài cho rằng mang đôi hia đã dùng để đi ra vườn, ra sân, nhỡ dẫm phải một vật ô uế, thì còn đâu là lòng kính cẩn khi quỳ trước sân rồng. Bởi vậy, ngài đã truyền gia nhân mở rương lớn lấy đôi hia mới.
+
+Ngồi trong ghế bành tượng, quan thị lang nóng nảy chờ lính hầu đem hia lại. Và ngài băn khoăn tìm xem có điều gì khiếm khuyết nữa không. Hôm qua, ngài đã tắm gội thanh khiết. Ngài lại đã trai giới trong luôn ba hôm. Ấy là không kể mười ngày trai giới trong tháng trước để cầu nguyện cho thượng hoàng chóng bình phục...
+
+Sợ chậm trễ bị quan quở, chú cai hầu cận chỉ kịp phủi qua bụi trên mũi đôi hia nhung, rồi vội vàng lồng vào chân quan.
+
+Bấy giờ mới giữa giờ Dần mà dinh quan Tả thị lang bộ Lễ lại gần cửa Ngọ môn, nhưng Hà công cũng hấp tấp ra đi. Ngài thừa biết còn sớm chán và đến Ngọ môn sẽ phải đợi lâu mới tới giờ Mão, giờ vào chầu. Ngài làm ra vội vàng, chẳng qua là để tỏ lòng mẫn cán thờ vua của mình, tỏ riêng với mình để được đúng lễ chứ không cần phải bộc bạch cho mọi người đều biết.
+
+Hà thị lang đứng dậy ra sân. Một hồi trống khẩu, một tiếng hò. Tức thì một cái võng trần ghé lại bên thềm. Kể thì chức Tả thị lang chánh tam phẩm được đi kiệu cũng như chức Thượng thư chánh nhị phẩm, nhưng Hà công không bao giờ dùng kiệu để vào chầu vua. Ngài cho cái kiệu cao quá, và ngồi nghênh ngang trên kiệu ngài thấy không hợp với cái đạo làm tôi. Người bầy tôi phải khúm núm run sợ, khi đương đi đến sân rồng cũng như khi quỳ trước long nhan.
+
+Nhưng không phải vì thế mà quan Tả thị lang lùi xùi. Ngài vẫn dùng đủ các nghi phục ngài được phép dùng: bốn cây lọng xanh, bốn cái đèn lồng và hai đôi kiếm, quất.
+
+---
+
+Một hồi trống lớn. Cánh cửa Ngọ môn mở rộng. Hai bên các quan văn võ qua hai lối xép đi vòng hồ bán nguyệt, thong thả, trịnh trọng theo điệu âm nhạc bước tới sân đại điện. Rồi chia ngôi thứ, ghi ở các biển phẩm trật, các quan quỳ thành hai hàng dài.
+
+Bấy giờ cửa điện đã mở, nhưng rèm còn buông, nên các quan đều chưa rõ hoàng thượng đã ngự triều hay chưa. Tuy thế mặc lòng, nhiều quan cũng thì thầm nói truyện với nhau. Và có người lại dám cúi gầm mặt xuống khúc khích cười nữa.
+
+Riêng về phần Hà thị Lang, ngồi không nhúc nhích, mắt đăm đăm nhìn thẳng vào miếng kính ở cái hốt ngà.
+
+Một câu hô: "Thiên tử!"
+
+Cảc rèm kéo lên một loạt.
+
+Giữa lúc ấy, Hà thị Lang thấy có một vật động đậy trong hia bên trái. Rồi các đầu ngón chân buồn buồn tựa có kiến bò. Thị lang rùng mình, và rời rã chân tay như người bị cù. Nhưng một tiếng hò thứ hai làm ngài giật mình và quên hẳn cái chân.
+
+"Bái chúc thánh hoàng vạn tuế!"
+
+Ngài theo các quan quỳ phía trên, phủ phục xuống sân rồng, đọc cùng một loạt:
+
+"Bãi chúc thánh hoàng vạn tuế vạn vạn tuế!"
+
+Tiếng "tuế" sau cùng vừa dứt, Hà thị lang thấy nhói một cái ở ngón chân út, như bị một mũi dùi đâm mạnh, khiến suýt nữa ngài kêu: "Ái!"
+
+Thị lang cho là mình để chân nhằm chỗ có cái đanh nhọn, và vì mình ấn mạnh hia xuống gạch để lạy, cái đanh ấy xuyên qua lần vải mà chọc vào ngón chân. Đoán chỗ thủng sâu lắm, và có cảm giác máu chảy, Thị lang ngó ngoáy và cố dí ngón chân út vào vải hia cho đỡ ngứa, thì cái đanh tưởng tượng lại càng đâm mạnh hơn, sâu hơn.
+
+Rồi liền ngay lúc ấy chỗ đau nhức nhói buốt chội lên như ai cầm một nắm kim mà cắm thấu tận xương. Thị lang nghiến răng lại để khỏi suýt soa. Và ngài nghĩ thầm: "Thiên tử mới bình phục chắc còn mệt. Vậy thì cố chịu đau một lát nữa thế nào rồi..."
+
+Nghĩ đến đây, Thị lang bỗng phải ngừng lại để toan kêu thét lên vì vừa bị một nhát thương thứ hai ở ngón chân cái. Bấy giờ cái cảm giác có một con vật bò trong chiếc hia rộng đã hơi  rõ rệt. Thị lang thấy cả hàng chân mềm của con vật động dậy và chạy mơn lên đầu mấy ngón chân của mình. Rồi như có một cơn gió vừa thổi lạnh vào thân thể, vào ngũ tạng, thị lang rét run, hai hàm răng đập vào nhau côm cốp.
+
+Nhức buốt dần dần tăng, dần dần lan ra tứ chi thấm vào ruột, vào phổi, ăn thẳng lên óc. Thị lang tưởng chừng con vật ở trong hia đã chui lọt qua lần da, theo đường các ống xương mà chạy thực mau, vừa chạy vừa cắn.
+
+Nhưng tuy đau có thể chết ngất được, thị lang vẫn cố sức, vẫn thu hết tàn lực lại để quỳ vững vàng, ngay thẳng. Mỗi khi cái lưng ngài muốn gập xuống dưới sức đè nặng trĩu của con quái vật tàng hình thì ngài lại nghiến răng bạnh cổ và ưỡn ngực để chống lại. Vì cái đau xé can tràng vẫn không thể làm cho tinh thần ngài mất tỉnh táo đến nỗi quên được rằng mình đương chầu vua, và chỉ một tiếng kêu bất kính, một cử động không hợp lễ như thò tay bóp chỗ đau chẳng hạn, cũng đủ liệt mình vào hàng bầy tôi bất trung.
+
+Mắt thị lang lim dim nhìn vào kính hốt thấy đôi mi xưng húp như chứa đầy nọc độc con vật kỳ quái.
+
+Rồi mình mảy thị lang đau ran lên, đau từng phân, từng ly thịt một. Bất giác hai giòng lệ luôn rơi lã chã, thị lang phải ghì hết can đảm và nghị lực mới giữ được khỏi thốt ra câu thỉnh cầu khiếm lễ: "Muôn tâu Bệ hạ, xin Bệ hạ miễn triều cho kẻ hạ thần, chẳng kẻ hạ thần chết mất".
+
+---
+
+Trong khi ấy thì hoàng thượng vui vẻ hỏi chuyện quan thái sư mà ngài vừa truyền gọi đến bên ngai vàng. Ngài cười nói coi bộ thích trí, thì thầm nhiều câu tưởng chừng bí mật lắm. Và ngài như quên hẳn bọn bầy tôi đương quỳ ngoài sân rồng.
+
+Bỗng ngài quay ra, chau mày nhìn, rồi lẩm bẩm như gắt:
+
+-- Miễn triều!
+
+Tức thì quan thị vệ ngân nga hô lớn:
+
+-- Thiên tử miễn triều!
+
+Các quan thong thả lên gối đứng dậy một loạt.
+
+Một mình Hà thị lang vẫn quỳ. Người bên cạnh nhắc.
+
+-- Kìa, quan bác, Bệ hạ miễn triều!
+
+Hà thị lang ngửng lên chừng để được thấy thiên nhan một lần cuối cùng, rồi nằm vật ra kêu:
+
+-- Trời ơi! Cái hia!
+
+Các quan ngơ ngác, hoảng hốt cúi nhìn: Hà thị lang bằn bặt thiếp đi.
+
+Nghe có tiếng ồn ào, hoàng thượng hỏi thái sư:
+
+-- Cái gì thế?
+
+Một quan Thượng thư tiến gần lại quỳ tâu:
+
+-- Muôn tâu Bệ hạ, Hà thị Lang vừa ngất đi. Mà lúc Hà thị lang lăn ra đất, kẻ hạ thần có nghe thấy tiếng kêu: "Cái hia!" Vậy chưa rõ thực hư, kẻ hạ thần xin cứ tâu lên thánh thượng.
+
+Hoàng đế cười, phán:
+
+-- Hắn kêu "cái hia" thì cứ tháo hia hắn ra rõ thực hư ngay, chứ khó gì.
+
+Chiếc hia trái vừa rút khỏi chân, Hà thị lang vẫn nằm bất tỉnh, thì một con rết dài gần một gang tay chạy vọt ra. Bá quan văn võ quên cả nghi lễ đua nhau chạy đuổi, vung hốt ngà đánh dập nát con vật trong khi hoàng thượng ngồi cười ngất trên ngai vàng.
+
+
+[^1]: Mờ mỹ thuật.
+
+[^2]: Bánh đen.
+
+[^3]: Đen.
+
+[^4]: Dăm bông.
+
+[^5]: Độ lớn nhỏ của lòng súng.
+
+[^6]: Khoa dạy học.
+
+[^7]: Tiệc ăn giữa đêm Noel.
+
+[^8]: Lễ nửa đêm.
+
+[^9]: Im.
+
+[^10]: Truyện một chàng nghèo.
+
+[^11]: (Tiếng Pháp) nghĩa là người thanh tra, thanh tra viên.
+
+[^12]: Cái rọc thuốc lá.
+
+[^13]: Người ta nói rằng ở phía bên kia bể, dưới trời trong...
+
+[^14]: Ồ! Ta sung sướng! Ồ! Ta sung sướng!
+
+[^15]: Nhưng thưa ông tôi chắc Tảo không làm nổi đâu.
+
+[^16]: Ông cứ giao các việc cho tôi, trong một giờ ông sẽ biết tôi làm nổi hay không.
